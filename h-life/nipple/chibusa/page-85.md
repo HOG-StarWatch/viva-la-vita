@@ -12,7 +12,7 @@
 
 ## 关于乳房的性感带 [​](#关于乳房的性感带)
 
-![alt text](/assets/bust1.BvErhbIc.jpg)
+![alt text](/h-life/assets/bust1.BvErhbIc.jpg)
 
 乳房的性感带包括“**乳首（乳晕）**”、“**下胸**”和“**B点（斯宾塞腋窝尾部）**”这三个位置。（大致上，图中粉色部分所示为性感带）
 

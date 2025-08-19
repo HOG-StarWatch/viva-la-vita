@@ -20,7 +20,7 @@ B点（breast spot）是指乳房侧面稍微上方（腋下或淋巴结下方�
 
 如果用肌肉来说，就是前锯肌，或者，背阔肌最上方的左右，附近。（这个位置的性感带，因人而异，所以只能说是附近）
 
-![](/assets/bust1.BvErhbIc.jpg)
+![](/h-life/assets/bust1.BvErhbIc.jpg)
 
 那么，这个B点……
 
