@@ -5,6 +5,7 @@ import sidebar from './sidebar.mjs';
 // https://vitepress.dev/reference/site-config
 export default defineConfig({
   base: "/viva-la-vita/",
+  head: [['link', { rel: 'icon', href: '/favicon.ico' }]],
   title: "viva-la-vita-wikibackup",
   description: "生如夏花识库手动备份",
   themeConfig: {

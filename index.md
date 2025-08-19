@@ -3,7 +3,10 @@ layout: home
 
 hero:
   name: "viva-la-vita-wikibackup"
-  text: "生如夏花知识库备份"
+  text: "生如夏花识库手动备份"
+  image:
+    src: /favicon.png
+    alt: 背景图片
   actions:
     - theme: brand
       text: 生如夏花原站
