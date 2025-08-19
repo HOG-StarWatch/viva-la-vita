@@ -7,7 +7,14 @@ export default {
 //    "/penis/": generateSidebar("penis"),
 //    "/hypnosis/": generateSidebar("hypnosis"),
 //    "/squirting/": generateSidebar("squirting"),
-// { text: '简介', link: '/general/' },
+//  { text: '简介', link: '/general/' },
+//  { text: '', link: '' },
+//  { text: '绪论',
+//      items: [
+//      { text: '', link: '' },
+//      ],
+//  },
+
     '/general/': [
         { text: '简介', link: '/general/' },
         { text: '雌性高潮开发的原理', link: '/general/theory' },
@@ -91,4 +98,22 @@ export default {
         { text: '后记', link: '/squirting/conclusion' },
     ],
 
+    '/h-life/nipple/':[
+        { text: '绪论',
+            items: [
+            { text: '关于乳首（乳首与性感的说明）', link: '/h-life/nipple/intro/page-90.html', target: '_self', },
+            { text: '关于乳首开发', link: './nipple/intro/page-9.html' },
+            { text: '什么是乳首自慰', link: './nipple/intro/page-146.html' },
+            { text: '【新手向】乳首开发入门讲座', link: './nipple/intro/page-41.html' },
+            ],
+        },
+        { text: '乳首开发与乳首高潮的说明',
+            items: [
+                { text: '关于乳首开发的风险', link: './nipple/kaihatsu+iki/page-10.html' },
+                { text: '关于乳首的敏感度等级', link: './nipple/kaihatsu+iki/page-1.html' },
+            ],
+        },
+
+    ],
 }
+//{ text: '', link: '' },
