@@ -28,9 +28,9 @@ layout: doc
 +   **TMI** - too much information
 +   **YMMV** - your mileage may vary
 
-**聚乙缩醛** 是大多数 **Aneros** 模型的材料（除 Progasm 由聚苯乙烯制成）。所有 Aneros 型号均由 FDA 批准的材料制成。聚乙缩醛是一种具有高熔点的结晶聚合物。它具有高弹性模量，同时具有高强度、刚度、光滑度、自然润滑性和耐磨性。水分对其没有影响。另请参阅 [Aneros 的结构](/prostate/appendix/Aneros_基础知识#Aneros_%E7%9A%84%E8%A7%A3%E5%89%96 "wikilink")。
+**聚乙缩醛** 是大多数 **Aneros** 模型的材料（除 Progasm 由聚苯乙烯制成）。所有 Aneros 型号均由 FDA 批准的材料制成。聚乙缩醛是一种具有高熔点的结晶聚合物。它具有高弹性模量，同时具有高强度、刚度、光滑度、自然润滑性和耐磨性。水分对其没有影响。另请参阅 [Aneros 的结构(/prostate/appendix/Aneros_基础知识#Aneros_%E7%9A%84%E8%A7%A3%E5%89%96 "wikilink")。
 
-**指压点** 在 Aneros 的背景下，这些是性感神经靠近皮肤表面的区域，在那里它们对直接刺激有反应。一个这样有效的指压点，也被称为 [甜蜜点](/prostate/appendix/了解你的身体#sweet_spot "wikilink")，位于会阴的下部，受到 Aneros P-tab 的刺激。肛门和尾骨之间的第二个穴位由 Progasm 上的 K-tab 刺激。 （另一个性感的指压点可以在阴茎从阴囊向上的 1/4 到 1/3 处找到。）
+**指压点** 在 Aneros 的背景下，这些是性感神经靠近皮肤表面的区域，在那里它们对直接刺激有反应。一个这样有效的指压点，也被称为 [甜蜜点(/prostate/appendix/了解你的身体#sweet_spot "wikilink")，位于会阴的下部，受到 Aneros P-tab 的刺激。肛门和尾骨之间的第二个穴位由 Progasm 上的 K-tab 刺激。 （另一个性感的指压点可以在阴茎从阴囊向上的 1/4 到 1/3 处找到。）
 
 Aless（又名 Anerosless、A-less 或简称为 -less）是一种在没有插入 Aneros 按摩器的情况下产生任何类型的前列腺高潮的尝试。
 
@@ -134,7 +134,7 @@ Aless（又名 Anerosless、A-less 或简称为 -less）是一种在没有插入
 
 **凯格尔运动** PC 肌肉的锻炼，一般来说，特别是骨盆底前部的子集。要识别前部 PC 肌肉，请先收缩，就像您通常会停止尿液流动一样。或者，注意用于使勃起上下移动和搏动的肌肉动作（您必须保持勃起才能尝试此操作）。如果您进行强烈或突然的收缩，您可能会同时进行肛门收缩。这是因为 PC 肌从肛门周围开始，一直延伸到尿道括约肌。强烈的收缩将改善肛门和 PC 肌张力。然而，缓慢、温和的收缩会产生更孤立的前 PC 肌肉的动作，当正确接合时，可以为直肠内的 Aneros 提供非常微妙的运动。 凯格尔运动计划可以显着改善男性性反应的许多方面，包括：勃起强度、射精收缩的次数和强度、射精力、唤醒和愉悦的感觉，以及 Aneros 动作的强度和控制。前部 PC 肌肉特别参与射精和前列腺性高潮。
 
-**KSMO** 是 The Key Sound Multiple Orgasm Trigger Protocol 的缩写，是一种使用发声来驱动唤醒放大导致多次免提非射精性高潮的特定方法。男人和女人。另请参阅 [KSMO](/prostate/appendix/高级技能#KSMO "wikilink") 和 [multiples.com](http://www.multiples.com) 了解更多信息。
+**KSMO** 是 The Key Sound Multiple Orgasm Trigger Protocol 的缩写，是一种使用发声来驱动唤醒放大导致多次免提非射精性高潮的特定方法。男人和女人。另请参阅 [KSMO(/prostate/appendix/高级技能#KSMO "wikilink") 和 [multiples.com](http://www.multiples.com) 了解更多信息。
 
 **K-tab** Aneros *Progasm* 上的"Kundalini"标签，该标签位于臀部之间的肛门上方，并在那里的指压点施加压力。以瑜伽概念命名，即身体躯干底部有一条力量之蛇。 K-tab 和它伸出的手臂取代了其他 Aneros 模型中的手柄。
 
@@ -152,13 +152,13 @@ Aless（又名 Anerosless、A-less 或简称为 -less）是一种在没有插入
 
 **精神集中** 在 Aneros 的上下文中，这涉及通过集中注意力和注意力来放大感觉的过程。随着专注，人们会意识到以前隐藏的微妙感觉，而随着专注，这种感觉会被放大。
 
-**里程碑** 是与 Aneros 一起旅行的进度指标。重要的是要注意，每次旅程都是独特的个人体验。所有里程碑可能并不适用于所有人。每个人处理这件事的速度都不一样。参见 [milestones](/prostate/appendix/Getting_Started#milestones "wikilink") 列表。
+**里程碑** 是与 Aneros 一起旅行的进度指标。重要的是要注意，每次旅程都是独特的个人体验。所有里程碑可能并不适用于所有人。每个人处理这件事的速度都不一样。参见 [milestones(/prostate/appendix/Getting_Started#milestones "wikilink") 列表。
 
 **头脑噪音** 分散注意力的任何性质的想法，从享受 Aneros 使用的乐趣中转移注意力。
 
 **微型高潮** 一种不那么强烈的非射精性高潮，通常在发展非射精性高潮技能的早期阶段经历。它们通常集中在骨盆区域，涉及轻微但明显的性高潮收缩和高潮感。
 
-**男性多重高潮** [(**M**ale **M**ultiple **O**rgasm)](/prostate/appendix/Aneros_Basics#Male_Multiple_Orgasm_\(MMO\) "wikilink") 重复的、非射精性的男性高潮，由于没有不应期而可以比射精更频繁地发生。
+**男性多重高潮** [(**M**ale **M**ultiple **O**rgasm)(/prostate/appendix/Aneros_Basics#Male_Multiple_Orgasm_\(MMO\) "wikilink") 重复的、非射精性的男性高潮，由于没有不应期而可以比射精更频繁地发生。
 
 **修改** 对 Aneros 进行的更改以提高其适配性或响应性。常见的修改包括： **P-tab**（基台标签）的轻微重新定位以更好地与"**甜蜜点**"接触，增加 P-tab 的尺寸，抛光 Aneros 的表面有光泽以获得更好的移动性，并且移除手柄以允许坐下并提供与前列腺更好的接触（这允许装置更自由地向前枢转）。
 
@@ -244,17 +244,17 @@ Aless（又名 Anerosless、A-less 或简称为 -less）是一种在没有插入
 
 **会话** 一个人致力于探索 Aneros 的非射精唤醒的时间段。通常，会话持续一个小时或更长时间。一些用户报告的会话长度为 4 到 8 小时。一节课的持续时间最终取决于一个人的耐心、享受程度和耐力。
 
-**Slighest Touch**™一种刺激阴部和下腹神经的电子设备，可提高男性和女性的觉醒水平。另请参阅 [E-stim](/prostate/appendix/高级技能#E-stim "wikilink") 了解更多信息。
+**Slighest Touch**™一种刺激阴部和下腹神经的电子设备，可提高男性和女性的觉醒水平。另请参阅 [E-stim(/prostate/appendix/高级技能#E-stim "wikilink") 了解更多信息。
 
 **软腭护理** 一个简单但出人意料的强大唤醒放大器。将您的舌头背面放在上颚并以护理动作吸吮。
 
 **坚持高潮** 一种连续或连续性高潮状态的名称，峰值出现在附近。
 
-**Super-O** 超级高潮的缩写。一种非常强烈的非射精性高潮事件。没有不应期的性高潮可以重复多次。另请参阅 [Super-O](/prostate/appendix/The_Super-O#%E4%BB%80%E4%B9%88%E6%98%AF_Super-O%EF%BC%9F "wikilink") 页面以获取更多信息。
+**Super-O** 超级高潮的缩写。一种非常强烈的非射精性高潮事件。没有不应期的性高潮可以重复多次。另请参阅 [Super-O(/prostate/appendix/The_Super-O#%E4%BB%80%E4%B9%88%E6%98%AF_Super-O%EF%BC%9F "wikilink") 页面以获取更多信息。
 
 **Super-T** 超级的传统高潮。来自传统阴茎刺激（交配、手动或口腔）的射精性高潮，但在插入 Aneros 时发生，其特点是：深而强烈的射精收缩；更多的射精收缩；射精量更大；和其他类似于超级高潮中的反应。当一个人射精"结束"时，这种高潮很常见，作为超级高潮会话的终点。也是由边缘和 Aneros 带来的传统高潮。
 
-**sweet spot** (**P-spot**, **会阴穴位**) Aneros 刺激的以会阴为中心的穴位\*'P-tab\* '。正确接触甜蜜点是成功使用 Aneros 的一个非常重要的组成部分。另请参阅"[sweet spot](/prostate/appendix/了解你的身体#Sweet_spot "wikilink")"了解更多信息。
+**sweet spot** (**P-spot**, **会阴穴位**) Aneros 刺激的以会阴为中心的穴位\*'P-tab\* '。正确接触甜蜜点是成功使用 Aneros 的一个非常重要的组成部分。另请参阅"[sweet spot(/prostate/appendix/了解你的身体#Sweet_spot "wikilink")"了解更多信息。
 
 **注射器** 在 Aneros 上下文中，用于直肠预润滑的类似注射器的药液分配器（通常为 5cc，常用于小孩）；或者，用于提供清洁灌肠的直肠注射器。
 

@@ -35,7 +35,7 @@ layout: doc
 +   开发替代技术来刺激和取悦他们的伴侣。
 +   一个广泛的话题，用于维持和扩大合作伙伴之间的对话和交流。
 +   更好的整体性关系
-+   一旦您[重新布线](/prostate/appendix/词汇表 "wikilink")，您就可以获得各种新的感官体验。
++   一旦您[重新布线(/prostate/appendix/词汇表 "wikilink")，您就可以获得各种新的感官体验。
 
 ### 你的灵魂[​](#你的灵魂 "你的灵魂的直接链接")
 
@@ -93,7 +93,7 @@ American Association of Sexuality Educators, Counselors and Therapists 是一个
 
 锻炼骨盆底肌肉以改善肌肉张力、力量和耐力已被证明可以增加男性对性的享受。经常使用 Aneros 按摩器可以通过积极锻炼与性高潮反应相关的主要肌肉、PC 和括约肌来有效地完成这项练习。
 
-长期以来，人们都认为凯格尔运动可以增强 PC 肌肉，因为它们对性功能有益，它们对使用 Aneros 按摩器同样有益。 Aneros 所有者可能还希望考虑使用 [Pelvexiser-M](/prostate/appendix/相关产品#Pelvexiser "wikilink")™ 用于额外培训。
+长期以来，人们都认为凯格尔运动可以增强 PC 肌肉，因为它们对性功能有益，它们对使用 Aneros 按摩器同样有益。 Aneros 所有者可能还希望考虑使用 [Pelvexiser-M(/prostate/appendix/相关产品#Pelvexiser "wikilink")™ 用于额外培训。
 
 这个最近开发的 [前列腺锻炼](http://www.prostate-massage-and-health.com/prostate-exercise.html) 也可能有用。
 

@@ -6,7 +6,7 @@ import sidebar from './sidebar.mjs';
 export default defineConfig({
   base: "/viva-la-vita/",
   title: "viva-la-vita-wikibackup",
-  description: "生如夏花知识库手动备份",
+  description: "生如夏花识库手动备份",
   themeConfig: {
     // https://vitepress.dev/reference/default-theme-config
     nav: nav,

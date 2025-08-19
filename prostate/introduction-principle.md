@@ -39,11 +39,11 @@ Webster 词典将性高潮定义为「一种狂热；一种极大的兴奋；特
 +   在肛管上方蠕虫状运动的感觉。
 +   由于直接刺激前列腺的神经丛，可能会改善阳痿和勃起功能障碍。
 
-另请参阅 [里程碑](/prostate/introduction/Getting_Started#Milestones "wikilink") 以了解重新布线过程产生的进一步效果和事件。
+另请参阅 [里程碑(/prostate/introduction/Getting_Started#Milestones "wikilink") 以了解重新布线过程产生的进一步效果和事件。
 
 ## 会阴[​](#会阴 "会阴的直接链接")
 
-[Perineum](http://en.wikipedia.org/wiki/Perineum) 是肛门和大腿之间的阴囊之间的区域。位于该区域的指压点被称为[sweet spot](/prostate/introduction/[#sweet_spot "wikilink")。它是一个硬币大小的点，距离肛门开口约 3 到 5 cm。在这个点的下方，在身体内部，有一个神经中枢，它主要负责在整个生殖器区域传递（愉悦）信号。 Aneros 刺激这些神经，同时刺激肛门和前列腺内的神经。
+[Perineum](http://en.wikipedia.org/wiki/Perineum) 是肛门和大腿之间的阴囊之间的区域。位于该区域的指压点被称为[sweet spot(/prostate/introduction/[#sweet_spot "wikilink")。它是一个硬币大小的点，距离肛门开口约 3 到 5 cm。在这个点的下方，在身体内部，有一个神经中枢，它主要负责在整个生殖器区域传递（愉悦）信号。 Aneros 刺激这些神经，同时刺激肛门和前列腺内的神经。
 
 ## 甜蜜点[​](#甜蜜点 "甜蜜点的直接链接")
 
@@ -56,7 +56,7 @@ Webster 词典将性高潮定义为「一种狂热；一种极大的兴奋；特
 如果您在插入 Aneros 时发现基台区域在高于笔标记的位置接触您的会阴，则可以通过以下几种方式之一来解决此问题：
 
 1.  购买一个新的（重新设计的）MGX，它有一个更短更紧的基台标签（几乎所有在 Aneros 网站上出售的 MGX 装置现在都是重新设计的类型）
-2.  考虑修改你的 MGX Classic（见 [Aneros 修改-> P-tab arm...](/prostate/introduction/高级技能#P-tab_arm "wikilink")）
+2.  考虑修改你的 MGX Classic（见 [Aneros 修改-> P-tab arm...(/prostate/introduction/高级技能#P-tab_arm "wikilink")）
 3.  试试 Aneros 的 SGX 版本，它还具有更短、更紧的标签设计。 （但请注意，SGX的主体较小，可能为某些用户提供较少的前列腺接触。）
 
 保持水平位置更多的是一项持续的努力，因为会阴区域，特别是当它充血时，形状可能不规则，尤其是当充血时，（圆形，脊状）所以 P-区域总是有滑动到一个的趋势一边或另一边。如果您使用一两个手指作为向导，您应该没有任何问题。再次，用你的食指和食指做一个 V 形，并跨过两侧的基台标签......瞧！将其视为持续的微调。请记住，在引导时不要让您的手指在选项卡上施加任何压力，这一点很重要；至关重要的是，P-tab 必须有动力并尽可能响应您的肛门收缩。正是这种运动自由使感觉反馈回路成为产生 Super-O 必不可少的要素。对于那些仍然无法以我所描述的方式维持基台标签水平稳定性的最小努力的人，用户设计了几种类型的锚，可以提供一些帮助。请注意，此类设备确实有一些缺点。

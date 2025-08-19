@@ -26,7 +26,7 @@ layout: doc
 
 ## 电刺激[​](#电刺激 "电刺激的直接链接")
 
-[电刺激](/prostate/高级技能#E-stim "wikilink")在恋物癖和 BDSM 社区拥有自己的忠实追随者，但它也可以作为 Aneros 所有者武器库中的另一个色情增强工具。以下是两个制造商的色情电刺激设备：
+[电刺激(/prostate/高级技能#E-stim "wikilink")在恋物癖和 BDSM 社区拥有自己的忠实追随者，但它也可以作为 Aneros 所有者武器库中的另一个色情增强工具。以下是两个制造商的色情电刺激设备：
 
 +   [Erostek™](https://erostek.com/)
 +   [P.E.S.™](http://www.peselectro.com/pescontent/index.php)

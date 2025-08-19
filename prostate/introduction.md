@@ -15,7 +15,7 @@ layout: doc
 
 ## 获得帮助[​](#获得帮助 "获得帮助的直接链接")
 
-本 wiki 旨在为 Aneros 用户提供一般指南和信息，以帮助他们从使用按摩器中获得最大的满足感。但是，它无法囊括练习中的所有细微差别。您或许可以解决您的问题，而无需在[论坛](https://bbs.viva-la-vita.org)上寻求帮助。您是否遵循了\[新手检查清单\]？您是否查看过[常见问题](/prostate/appendix/faq)部分？在"一般性讨论"论坛上发帖时，以下指南将有助于读者有效地回复您：
+本 wiki 旨在为 Aneros 用户提供一般指南和信息，以帮助他们从使用按摩器中获得最大的满足感。但是，它无法囊括练习中的所有细微差别。您或许可以解决您的问题，而无需在[论坛](https://bbs.viva-la-vita.org)上寻求帮助。您是否遵循了\[新手检查清单\]？您是否查看过[常见问题(/prostate/appendix/faq)部分？在"一般性讨论"论坛上发帖时，以下指南将有助于读者有效地回复您：
 
 1.  尽可能清楚和具体地陈述您的特定问题。示例：「我在使用后肛门周围酸痛......这是什么原因造成的？」
 2.  提供一个简短的叙述来充实细节。示例：「昨晚我有一个 2 小时的训练，以几个 P 波结束，但没有达到 Super-O。大多数时候我使用强烈收缩（70%），每次保持几分钟，因为我发现它是在我的前列腺上真正感受到 Aneros 的唯一方法。在疗程结束后，我立即注意到一些疼痛，这种疼痛已经持续了一段时间。我使用了大量的润滑油。」
@@ -32,7 +32,7 @@ layout: doc
 
 男性不仅可以有连续的非射精性高潮，而且这些性高潮可能非常强烈——比您以前的射精还要强烈。有些男性可能将它回忆为他们「一生中最强烈的性高潮」的时刻。异常强烈的非射精性高潮可能涉及大声的不自主发声和压倒性的快感，并在身体的较大范围内引起反应。更重要的是，您可以对它们产生半小时、一小时或更长时间的大规模连锁反应。
 
-男性多重高潮起源于古老的东方实践，如密宗佛教和道教（参见 [Aneros History](/prostate/appendix/history)）。 Aneros 虽然最初旨在帮助男性管理前列腺健康，但结果证明在加速学习多重高潮的过程中非常有效。出于这个原因，Aneros 论坛的一位杰出人物将 Aneros 称为「密宗训练轮」。还有其他学习和练习男性多重高潮的方法（参见 [高级技巧](/prostate/introduction/advanced)），但 Aneros 是最有效的方法之一。 一旦您突破到干性高潮，即使没有 Aneros，您也可能拥有它们（有关这种现象的更多信息，请参阅 YouTube 视频 [前列腺高潮练习：干性高潮 (1)](https://www.youtube.com/watch?v=vni_VPeD0wo) 和 [前列腺高潮练习：干性高潮 (2)](https://www.youtube.com/watch?v=b_CLcYHKIIs)
+男性多重高潮起源于古老的东方实践，如密宗佛教和道教（参见 [Aneros History(/prostate/appendix/history)）。 Aneros 虽然最初旨在帮助男性管理前列腺健康，但结果证明在加速学习多重高潮的过程中非常有效。出于这个原因，Aneros 论坛的一位杰出人物将 Aneros 称为「密宗训练轮」。还有其他学习和练习男性多重高潮的方法（参见 [高级技巧(/prostate/introduction/advanced)），但 Aneros 是最有效的方法之一。 一旦您突破到干性高潮，即使没有 Aneros，您也可能拥有它们（有关这种现象的更多信息，请参阅 YouTube 视频 [前列腺高潮练习：干性高潮 (1)](https://www.youtube.com/watch?v=vni_VPeD0wo) 和 [前列腺高潮练习：干性高潮 (2)](https://www.youtube.com/watch?v=b_CLcYHKIIs)
 
 您也可以参考一些 Aneros 用户[在论坛上的发言](https://www.aneros.com/forum/categories/testimonials)。
 
@@ -94,7 +94,7 @@ Aneros™前列腺按摩器系列由 High Island Health LLC（母公司，简称
 +   **[Progasm Jr.](https://www.aneros.com/product/progasm-jr/)** 模仿了 *Progasm* 的设计，但体积小了约 20%。
 +   **[Vice2](https://www.aneros.com/product/vice-2/)** 是一款多模式、多电机的振动模型，它可充电、可遥控，全部由硅胶制成（取代了 Vice 和 Muze 型号）。
 +   **[DeVice](https://www.aneros.com/product/device/)** 是 Vice2 模型的固体硅胶版本（它没有振动模块）。
-+   **[Peridise](https://www.aneros.com/product/peridise-2pk/)** 相当于高岛 [Peristal](/prostate/www.highisland.com/hm.php) 模型（这些不是前列腺按摩器）。
++   **[Peridise](https://www.aneros.com/product/peridise-2pk/)** 相当于高岛 [Peristal(/prostate/www.highisland.com/hm.php) 模型（这些不是前列腺按摩器）。
 +   **[Tempo](https://www.aneros.com/product/tempo/)**：**Peridise** 设计的抛光不锈钢变体（不是前列腺按摩器）。
 +   **[EVI](https://www.aneros.com/product/evi/)** 是一款全硅胶凯格尔运动器，专为女性设计。
 +   **[ViVi](https://www.aneros.com/product/vivi/)** 是一款全硅胶遥控凯格尔运动器，带有专为女性设计的振动元件。
