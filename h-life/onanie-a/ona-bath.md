@@ -234,7 +234,7 @@
 
 顺便说一下，关于女装自慰的方法，请参考这篇文章。
 
-+   [女装自慰的方法总结～即使讨厌自己的脸也没问题！](/onanie-a/josou001.html)
++   [女装自慰的方法总结～即使讨厌自己的脸也没问题！](/h-life/onanie-a/josou001.html)
 
 在浴室这个现实感被中和的地方，穿着学生泳衣玩耍，真的是太幸福了！
 
@@ -268,4 +268,4 @@ dugafpwc("432","240","dugaflvplayer-tma2-0094","[https://click.duga.jp/ppv/tma2-
 
 关于在浴缸里自慰的信息，我会在另一篇文章中再次总结，请务必观看！
 
-+   [在浴室里自慰的优点和缺点](/onanie-a/ona-bath.html)
++   [在浴室里自慰的优点和缺点](/h-life/onanie-a/ona-bath.html)

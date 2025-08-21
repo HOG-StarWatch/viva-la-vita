@@ -2,10 +2,10 @@
 
 本网站正在讲解乳首开发以及乳首自慰（乳首自慰）的方法，请务必阅读以下文章。
 
-+   [成功开发乳首的技巧总结](/onanie-a/chikubi000.html)
-+   [使用磁针贴能高概率成功开发乳首！？](/onanie-a/chikubi010.html)
-+   [乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.html)
-+   [乳首自慰无法达到干性高潮的解决方案总结](/onanie-a/chikubi004.html)
++   [成功开发乳首的技巧总结](/h-life/onanie-a/chikubi000.html)
++   [使用磁针贴能高概率成功开发乳首！？](/h-life/onanie-a/chikubi010.html)
++   [乳首自慰（乳首自慰）的方法总结](/h-life/onanie-a/chikubi003.html)
++   [乳首自慰无法达到干性高潮的解决方案总结](/h-life/onanie-a/chikubi004.html)
 
 读过以上文章后就会明白，不得不说乳首自慰的成功率很低。
 
@@ -51,7 +51,7 @@
 
 在这种情况下，骑乘位摇动腰部，同时玩弄乳首的女性的图片或视频是有效的。
 
-+   [如何找到好的色情图片、搜索技巧和秘诀总结](/onanie-a/okazu001.html)
++   [如何找到好的色情图片、搜索技巧和秘诀总结](/h-life/onanie-a/okazu001.html)
 
 ### 注意点 [​](#注意点)
 
@@ -115,14 +115,14 @@
 
 说到蕾丝，在以下文章中，我谈到了女装和蕾丝与乳首自慰的关系。
 
-+   [如何进行百合妄想自慰，方法总结](/onanie-a/yuri.html)
++   [如何进行百合妄想自慰，方法总结](/h-life/onanie-a/yuri.html)
 
 对这种蕾丝妄想乳首自慰有效的是，仿真人偶和乳房用品。
 
 关于仿真人偶和乳房用品本身的信息，请参考以下文章。
 
-+   [固定式飞机杯和情趣娃娃的魅力与注意事项总结](/onanie-a/lovedoll001.html)
-+   [使用胸部用品进行胸推自慰的方法、总结](/onanie-a/oppai-paizuri.html)
++   [固定式飞机杯和情趣娃娃的魅力与注意事项总结](/h-life/onanie-a/lovedoll001.html)
++   [使用胸部用品进行胸推自慰的方法、总结](/h-life/onanie-a/oppai-paizuri.html)
 
 ### 仿真人偶的情况下的做法 [​](#仿真人偶的情况下的做法)
 

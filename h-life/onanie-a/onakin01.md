@@ -172,8 +172,8 @@
 
 也请务必阅读考察戒撸的功过和手淫频率的文章。
 
-・[为了不做不舒服的自慰](/onanie-a/kaikan-imaichi.html)
+・[为了不做不舒服的自慰](/h-life/onanie-a/kaikan-imaichi.html)
 
-・[通过手冲自慰来缓解压力是好事吗](/onanie-a/stress-onanie.html)
+・[通过手冲自慰来缓解压力是好事吗](/h-life/onanie-a/stress-onanie.html)
 
-・[【有损健康？】关于自慰的缺点的真相与谎言【会降低运气？】](/onanie-a/demerit.html)
+・[【有损健康？】关于自慰的缺点的真相与谎言【会降低运气？】](/h-life/onanie-a/demerit.html)

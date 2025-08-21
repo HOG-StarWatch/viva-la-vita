@@ -2,9 +2,9 @@
 
 关于角色扮演的入门知识，已经在以下文章中介绍过了。
 
-+   [【无需成人用品！】在推特上进行性幻想比自慰更舒服？](/onanie-a/twitter001.html)
-+   [推特角色扮演性爱（イメプ）术语词典](/onanie-a/twitter002.html)
-+   [推特性幻想扮演的开始方法、注意事项总结](/onanie-a/twitter003.html)
++   [【无需成人用品！】在推特上进行性幻想比自慰更舒服？](/h-life/onanie-a/twitter001.html)
++   [推特角色扮演性爱（イメプ）术语词典](/h-life/onanie-a/twitter002.html)
++   [推特性幻想扮演的开始方法、注意事项总结](/h-life/onanie-a/twitter003.html)
 
 如果在文章中遇到不明白的词语，请务必阅读上面的“术语词典”。
 

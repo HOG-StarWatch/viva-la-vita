@@ -20,7 +20,7 @@
 
 但是，女孩子的内衣和男性的内衣穿着感是微妙不同的！
 
-![](/h--life/assets/photo-030.jpg)
+![](/h-life/assets/photo-030.jpg)
 
 虽然说不太清楚，但是紧紧勒住腿根的独特感觉，会让人体验到少女般的羞耻感。
 
@@ -56,9 +56,9 @@
 
 关于包皮自慰本身，可以参考以下文章。
 
-[手冲（手淫）自慰的方法总结](/onanie-a/tekoki-matome.html)
+[手冲（手淫）自慰的方法总结](/h-life/onanie-a/tekoki-matome.html)
 
-[手冲（手淫）自慰不舒服时的解决方案总结](/onanie-a/bimyou.html)
+[手冲（手淫）自慰不舒服时的解决方案总结](/h-life/onanie-a/bimyou.html)
 
 总之，重要的是要充分展开“用包裹女性最重要部位的布料，摩擦自己的东西”的妄想。
 
@@ -68,7 +68,7 @@
 
 ### 直接摩擦 [​](#直接摩擦)
 
-+   [使用丝绸或缎面布料的手淫方法总结](/onanie-a/silk-satin.html)
++   [使用丝绸或缎面布料的手淫方法总结](/h-life/onanie-a/silk-satin.html)
 
 这篇文章介绍了用丝绸或缎面等光滑布料摩擦龟头的方法，但内衣的材质与这些相比更硬，所以可能会有点痛。
 
@@ -84,9 +84,9 @@
 
 首先，关于阴囊自慰这个领域，请看以下内容。
 
-[玉袋（阴囊）自慰（タマニー）的方法总结](/onanie-a/tamabukuro.html)
+[玉袋（阴囊）自慰（タマニー）的方法总结](/h-life/onanie-a/tamabukuro.html)
 
-[伪娘蛋蛋自慰（玉袋自慰）的方法总结](/onanie-a/womancos-tamanie.html)
+[伪娘蛋蛋自慰（玉袋自慰）的方法总结](/h-life/onanie-a/womancos-tamanie.html)
 
 那么，关于用内裤自慰的方法…
 
@@ -144,7 +144,7 @@
 
 关于详细的伪娘自慰方法，在这篇文章里已经充分讲述过了，请务必看看。
 
-+   [女装自慰的方法总结～即使讨厌自己的脸也没问题！](/onanie-a/josou001.html)
++   [女装自慰的方法总结～即使讨厌自己的脸也没问题！](/h-life/onanie-a/josou001.html)
 
 而且，在这种情况下，并用香氛商品也会很有效。
 
@@ -174,11 +174,11 @@
 
 在理解了上述注意事项和诀窍的基础上，关于详细的乳首自慰／乳首开发方法，请参考以下文章。
 
-[乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.html)
+[乳首自慰（乳首自慰）的方法总结](/h-life/onanie-a/chikubi003.html)
 
-[舒爽的乳首开发・乳首自慰的诀窍【最新情报5选】](/onanie-a/chikubi016.html)
+[舒爽的乳首开发・乳首自慰的诀窍【最新情报5选】](/h-life/onanie-a/chikubi016.html)
 
-[男人乳首开发，乳首自慰(乳首自慰)的9个「超」有效方法！](/onanie-a/chikubi013.html)
+[男人乳首开发，乳首自慰(乳首自慰)的9个「超」有效方法！](/h-life/onanie-a/chikubi013.html)
 
 ## 【2020-03-12追记】方法4.用伪娘用的“有洞内裤”…… [​](#【2020-03-12追记】方法4-用伪娘用的-有洞内裤)
 
@@ -192,7 +192,7 @@
 
 ### 在内衣自慰中最简单！ [​](#在内衣自慰中最简单)
 
-这种方法，只需要[手冲（手淫）自慰的方法总结](/onanie-a/tekoki-matome.html)从内裤里伸出的男性性器就可以了，所以可以说是内衣自慰中最轻松的方法。
+这种方法，只需要[手冲（手淫）自慰的方法总结](/h-life/onanie-a/tekoki-matome.html)从内裤里伸出的男性性器就可以了，所以可以说是内衣自慰中最轻松的方法。
 
 [![](//ad.jp.ap.valuecommerce.com/servlet/gifbanner?sid=3330145&pid=884492642)![](https://www.onanie-analyzer.com/gazou/otokono-ko.jpg)](//ck.jp.ap.valuecommerce.com/servlet/referral?sid=3330145&pid=884492642&vc_url=https%3A%2F%2Fwww.ms-online.co.jp%2Flingerie_shorts-lingerie-cross-dresser%2FTMT-1206%2F)
 

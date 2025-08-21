@@ -4,9 +4,9 @@
 
 ![](/h-life/assets/photo01.jpg)
 
-・[任何人都能上手的乳首开发入门・初级篇](/onanie-a/chikubi002.html)
+・[任何人都能上手的乳首开发入门・初级篇](/h-life/onanie-a/chikubi002.html)
 
-・[开始乳首自慰（乳首自慰）的准备和心态](/onanie-a/chikubi001.html)
+・[开始乳首自慰（乳首自慰）的准备和心态](/h-life/onanie-a/chikubi001.html)
 
 当然，仅使用上述文章中提到的方法，也完全有可能通过乳首自慰达到干性高潮。
 

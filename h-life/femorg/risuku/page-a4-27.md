@@ -49,11 +49,11 @@
 
 详细内容总结在以下文章中。
 
-“**[男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.html)**”
+“**[男性女性化（关于女性荷尔蒙影响的说明）](/h-life/femorg/risuku/page-a4-14.html)**”
 
-“**[关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.html)**”
+“**[关于雌性高潮的风险和问题](/h-life/femorg/risuku/page-a4-3.html)**”
 
-“**[什么是雌性高潮自慰](/femorg/intro/page-a4-9.html)**”
+“**[什么是雌性高潮自慰](/h-life/femorg/intro/page-a4-9.html)**”
 
 有兴趣的人可以阅读一下。
 

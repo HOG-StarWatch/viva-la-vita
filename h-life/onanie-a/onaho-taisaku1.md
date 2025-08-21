@@ -84,9 +84,9 @@
 
 关于冲的寻找方法，请参考以下文章！
 
-[如何找到好的色情图片、搜索技巧和秘诀总结](/onanie-a/okazu001.html)
+[如何找到好的色情图片、搜索技巧和秘诀总结](/h-life/onanie-a/okazu001.html)
 
-[安全高效地寻找色情图片和视频的方法总结](/onanie-a/gazou-video.html)
+[安全高效地寻找色情图片和视频的方法总结](/h-life/onanie-a/gazou-video.html)
 
 ### 想象成“口”也不错 [​](#想象成-口-也不错)
 
@@ -96,9 +96,9 @@
 
 关于这种手法，我在以下文章中详细地写了。
 
-[M的快感？ 模拟口交的自慰方法](/onanie-a/m-fellatio.html)
+[M的快感？ 模拟口交的自慰方法](/h-life/onanie-a/m-fellatio.html)
 
-[使用口交系飞机杯的自慰方法总结 ※也介绍舌头道具、唾液道具](/onanie-a/fera001.html)
+[使用口交系飞机杯的自慰方法总结 ※也介绍舌头道具、唾液道具](/h-life/onanie-a/fera001.html)
 
 ### 想象成胸交！？ [​](#想象成胸交)
 
@@ -110,11 +110,11 @@
 
 关于想象成胸交的自慰，我在以下文章中详细地说了。
 
-・[使用胸部用品进行胸推自慰的方法、总结](/onanie-a/oppai-paizuri.html)
+・[使用胸部用品进行胸推自慰的方法、总结](/h-life/onanie-a/oppai-paizuri.html)
 
 可以说是这种方法的上位替代品，就是使用实体娃娃的自慰吧。
 
-・[使用充气娃娃等进行腰部摆动自慰的方法、技巧总结](/onanie-a/koshifuri01.html)
+・[使用充气娃娃等进行腰部摆动自慰的方法、技巧总结](/h-life/onanie-a/koshifuri01.html)
 
 ### 加热飞机杯 [​](#加热飞机杯)
 
@@ -138,9 +138,9 @@
 
 请务必参考以下文章。
 
-[让你爽到飞起的飞机杯自慰方法总结](/onanie-a/onaho-kaikan.html)
+[让你爽到飞起的飞机杯自慰方法总结](/h-life/onanie-a/onaho-kaikan.html)
 
-[便宜又舒服的人气飞机杯总结](/onanie-a/reasonable-onaho.html)
+[便宜又舒服的人气飞机杯总结](/h-life/onanie-a/reasonable-onaho.html)
 
 嘛，因为不是“只要插入就会舒服”的东西，所以如果不舒服的话，肯定会很失望吧…
 

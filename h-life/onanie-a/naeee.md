@@ -4,8 +4,8 @@
 
 详情请看以下文章。
 
-+   [【无需成人用品】手冲（手淫）自慰的舒服方法【无需道具！】](/onanie-a/zoufuku001.html)
-+   [让你爽到飞起的飞机杯自慰方法总结](/onanie-a/onaho-kaikan.html)
++   [【无需成人用品】手冲（手淫）自慰的舒服方法【无需道具！】](/h-life/onanie-a/zoufuku001.html)
++   [让你爽到飞起的飞机杯自慰方法总结](/h-life/onanie-a/onaho-kaikan.html)
 
 但是，无论自慰中积累了多少快感和性欲，都可能因为一瞬间的因素而功亏一篑，甚至性欲本身都会减退。
 
@@ -179,4 +179,4 @@
 
 把寻找素材的方法变得合理化也很重要哦。
 
-+   [安全高效地寻找色情图片和视频的方法总结](/onanie-a/gazou-video.html)
++   [安全高效地寻找色情图片和视频的方法总结](/h-life/onanie-a/gazou-video.html)

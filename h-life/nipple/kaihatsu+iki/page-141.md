@@ -30,12 +30,12 @@
 
 请使用以下两种方法之一来开发乳首！
 
-+   [关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.html)
-+   [关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.html)
++   [关于高效乳首开发方法（使用磁针贴进行性开发）](/h-life/nipple/kaihatsu+iki/page-2.html)
++   [关于用手进行乳首开发的方法](/h-life/nipple/kaihatsu+iki/page-11.html)
 
 另外，查看
 
-+   [关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.html)
++   [关于乳首的敏感度等级](/h-life/nipple/kaihatsu+iki/page-1.html)
 
 中记载的“乳首敏感度等级表”，可以确认之后还需要开发多久才能达到乳首高潮。
 
@@ -117,7 +117,7 @@
 
 放松后，就可以开始乳首自慰了。
 
-方法记载在[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.html)中。
+方法记载在[舒服的乳首自慰方法总结](/h-life/nipple/chikuni/page-5.html)中。
 
 用拇指和中指（或者食指或无名指）捏住乳首，轻轻地转动。
 
@@ -173,7 +173,7 @@
 
 也许身体也希望这样。可以舒服地入睡哦。
 
-（顺便说一下，可以在[通过乳首自慰获得的愉悦快感的说明](/nipple/kaihatsu+iki/page-81.html)中，确认能感受到什么样的感觉）
+（顺便说一下，可以在[通过乳首自慰获得的愉悦快感的说明](/h-life/nipple/kaihatsu+iki/page-81.html)中，确认能感受到什么样的感觉）
 
 以上。
 
@@ -181,12 +181,12 @@
 
 在通过
 
-+   [开发会阴性感的方法总结](/dryorg/ein/page-12.html)
++   [开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)
 
 进行性开发后，
 
-+   [矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.html)
-+   [会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/dryorg/ein/page-120.html)
-+   [理想的乳首自慰流程](/nipple/chikuni/page-14.html)
++   [矿泉水瓶+乳首自慰的手法](/h-life/nipple/chikuni/page-18.html)
++   [会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/h-life/dryorg/ein/page-120.html)
++   [理想的乳首自慰流程](/h-life/nipple/chikuni/page-14.html)
 
 等方法，可以获得非常强烈的快感。

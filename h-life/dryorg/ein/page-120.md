@@ -4,7 +4,7 @@
 
 ※ 本文为男性向。
 
-这次，我将详细介绍在「[理想的乳首自慰流程](/nipple/chikuni/page-14.html)」中提到的“乳首+会阴自慰”！
+这次，我将详细介绍在「[理想的乳首自慰流程](/h-life/nipple/chikuni/page-14.html)」中提到的“乳首+会阴自慰”！
 
 想要达到干性高潮顶峰的人，请务必参考。（实践请自行承担风险！）
 
@@ -37,13 +37,13 @@
 
 ## 关于会阴和乳首自慰的组合 [​](#关于会阴和乳首自慰的组合)
 
-基本上，就是左手拨弄左乳首，右手进行「[会阴自慰方法总结](/dryorg/ein/page-119.html)」的感觉。
+基本上，就是左手拨弄左乳首，右手进行「[会阴自慰方法总结](/h-life/dryorg/ein/page-119.html)」的感觉。
 
 （如果右乳首更容易产生快感，则可以反过来用手触摸）
 
 **如果会阴和乳首都没有经过充分的性开发**，就很难达到干性高潮。
 
-（未开发的人，请参考「[乳首开发方法总结](https://web.archive.org/web/20190909090130/http://adlib1.net/ws2/h-life/page-list-nipple)」和「[开发会阴性感的方法总结](/dryorg/ein/page-12.html)」）
+（未开发的人，请参考「[乳首开发方法总结](https://web.archive.org/web/20190909090130/http://adlib1.net/ws2/h-life/page-list-nipple)」和「[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)」）
 
 然后，在完成性开发后，如果用会阴和乳首进行自慰……快感是普通的。（或者稍微好一点）
 
@@ -65,11 +65,11 @@
 
 首先，
 
-「[关于干性高潮的技巧和知识](/dryorg/intro/page-55.html)」
+「[关于干性高潮的技巧和知识](/h-life/dryorg/intro/page-55.html)」
 
-「[关于性感带的说明](/dryorg/seikantai/page-74.html)」
+「[关于性感带的说明](/h-life/dryorg/seikantai/page-74.html)」
 
-「[强化性感的方法总结](/nipple/jyouhou/page-19.html)」
+「[强化性感的方法总结](/h-life/nipple/jyouhou/page-19.html)」
 
 来加深对干性和性感带的理解。
 
@@ -104,7 +104,7 @@
 
 乳首性感可以通过「[乳首开发方法总结](https://web.archive.org/web/20190909090130/http://adlib1.net/ws2/h-life/page-list-nipple)」来强化
 
-会阴性感可以通过「[开发会阴性感的方法总结](/dryorg/ein/page-12.html)」来强化
+会阴性感可以通过「[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)」来强化
 
 大脑内性感可以通过「[催眠自慰的信息总结](https://web.archive.org/web/20190909090130/http://adlib1.net/ws2/h-life/page-list-hypno)」来强化
 

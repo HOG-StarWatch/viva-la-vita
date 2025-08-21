@@ -6,11 +6,11 @@
 
 也许能给那些打算开始乳首开发的人，或者正在乳首开发中但还无法达到高潮的人带来希望。（实践要自己负责哦）
 
-（这是关于干性高潮的文章。如果有人不知道什么是干性高潮，请看[关于干性高潮的说明](/dryorg/intro/page-24.html)）
+（这是关于干性高潮的文章。如果有人不知道什么是干性高潮，请看[关于干性高潮的说明](/h-life/dryorg/intro/page-24.html)）
 
 ## 乳首自慰开始前的条件 [​](#乳首自慰开始前的条件)
 
-这次乳首自慰，执行[理想的乳首自慰流程](/nipple/chikuni/page-14.html)。
+这次乳首自慰，执行[理想的乳首自慰流程](/h-life/nipple/chikuni/page-14.html)。
 
 +   乳首，最后一次自慰后放置3天（禁欲也3天）
 +   尽可能进行「性感强化」（重要项目）
@@ -328,6 +328,6 @@
 
 上述的感觉方式，是在乳首和会阴都充分进行性感开发的情况下，如果不是这样，就无法感受到像写的那样内容。
 
-……想要追求这种快感的人，首先开始[「乳首开发方法总结」](https://web.archive.org/web/20241205031115/https://adlib1.net/ws2/h-life/page-list-nipple)和[开发会阴性感的方法总结](/dryorg/ein/page-12.html)吧～。
+……想要追求这种快感的人，首先开始[「乳首开发方法总结」](https://web.archive.org/web/20241205031115/https://adlib1.net/ws2/h-life/page-list-nipple)和[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)吧～。
 
-之后，如果实践[关于干性高潮的技巧和知识](/dryorg/intro/page-55.html)的内容，性感的培育会加快哦。
+之后，如果实践[关于干性高潮的技巧和知识](/h-life/dryorg/intro/page-55.html)的内容，性感的培育会加快哦。

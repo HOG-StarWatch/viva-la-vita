@@ -4,10 +4,10 @@
 
 首先，关于基本的乳首自慰/乳首开发的概要和方法，请参考以下文章。
 
-+   [开始乳首自慰（乳首自慰）的准备和心态](/onanie-a/chikubi001.html)
-+   [成功开发乳首的技巧总结](/onanie-a/chikubi000.html)
-+   [使用磁针贴能高概率成功开发乳首！？](/onanie-a/chikubi010.html)
-+   [乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.html)
++   [开始乳首自慰（乳首自慰）的准备和心态](/h-life/onanie-a/chikubi001.html)
++   [成功开发乳首的技巧总结](/h-life/onanie-a/chikubi000.html)
++   [使用磁针贴能高概率成功开发乳首！？](/h-life/onanie-a/chikubi010.html)
++   [乳首自慰（乳首自慰）的方法总结](/h-life/onanie-a/chikubi003.html)
 
 与只是进行性幻想就能轻松达到高潮的阴茎自慰不同，乳首自慰的难度较高。
 
@@ -236,7 +236,7 @@ dugafpwc("480","360","dugaflvplayer-aroma-0042","[https://click.duga.jp/ppv/arom
 
 首先，请务必阅读以下文章。其中写了催眠自慰的详细内容和注意事项。
 
-+   [催眠自慰的方法总结](/onanie-a/saimin001.html)
++   [催眠自慰的方法总结](/h-life/onanie-a/saimin001.html)
 
 在这里，我将介绍最适合那些与乳首自慰无关，只想体验干性高潮的人的催眠语音。
 

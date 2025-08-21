@@ -14,7 +14,7 @@
 
 而且，在一定程度上开发乳首的性感带之后……可以通过乳首自慰**达到高潮**。
 
-只要进行性开发，乳首就是一个可以轻松获得快感的性感带。……但是，如果未经开发，就只会感到“有点痒”，所以为了享受乳首自慰，需要进行“[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.html)”。
+只要进行性开发，乳首就是一个可以轻松获得快感的性感带。……但是，如果未经开发，就只会感到“有点痒”，所以为了享受乳首自慰，需要进行“[关于高效乳首开发方法（使用磁针贴进行性开发）](/h-life/nipple/kaihatsu+iki/page-2.html)”。
 
 ## 关于通过玩弄乳首使“男性”达到高潮 [​](#关于通过玩弄乳首使-男性-达到高潮)
 
@@ -84,7 +84,7 @@
 
 ……特别是，如果在第二次发育期前（初中高中生）大量享受乳首自慰，身体可能会不向男性发展，而是变成中性的，所以需要注意。
 
-关于其他男性乳首开发的风险和回报，请参考“[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.html)”。
+关于其他男性乳首开发的风险和回报，请参考“[关于乳首开发的风险](/h-life/nipple/kaihatsu+iki/page-10.html)”。
 
 女性可以以相对较低的风险享受，但是……男性，身体和心理可能会发生很大的变化……
 
@@ -104,9 +104,9 @@
 
 即使完全没有感觉……只要反复刺激有潜力成为性感带的地方，**总有一天会变成性感带**。
 
-但是，用手进行乳首开发，**生长速度并不快**，所以现在的乳首开发大多使用“[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.html)”。
+但是，用手进行乳首开发，**生长速度并不快**，所以现在的乳首开发大多使用“[关于高效乳首开发方法（使用磁针贴进行性开发）](/h-life/nipple/kaihatsu+iki/page-2.html)”。
 
-……另外，如果想知道继续进行乳首开发，性感带会如何成长，请参考“[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.html)”。
+……另外，如果想知道继续进行乳首开发，性感带会如何成长，请参考“[关于乳首的敏感度等级](/h-life/nipple/kaihatsu+iki/page-1.html)”。
 
 可以确认乳首性感的发展情况。
 
@@ -142,19 +142,19 @@
 
 对乳首自慰感兴趣的人，这些文章也很有用。
 
-“[【新手向】乳首开发入门讲座](/nipple/intro/page-41.html)”
+“[【新手向】乳首开发入门讲座](/h-life/nipple/intro/page-41.html)”
 
-“[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.html)”
+“[舒服的乳首自慰方法总结](/h-life/nipple/chikuni/page-5.html)”
 
-“[关于快速培养乳头性感的技巧](/nipple/kaihatsu+iki/page-43.html)”
+“[关于快速培养乳头性感的技巧](/h-life/nipple/kaihatsu+iki/page-43.html)”
 
-“[关于通过乳首性爱引发“愉悦的乳首高潮”的方法](/nipple/kaihatsu+iki/page-141.html)”
+“[关于通过乳首性爱引发“愉悦的乳首高潮”的方法](/h-life/nipple/kaihatsu+iki/page-141.html)”
 
 “[**乳首责めグッズ「UFO」と「U.F.O. SA」の評価・レビュー**](https://web.archive.org/web/20190909075344/http://adlib1.net/ws2/h-life/page-a1)”
 
 “[**乳首責めグッズ「UFO」で、気持ちいいチクニーをする方法**](https://web.archive.org/web/20190909075344/http://adlib1.net/ws2/h-life/page-143)”
 
-“[乳首开发可能使用的商品说明与评价](/nipple/kaihatsu+iki/page-3.html)”
+“[乳首开发可能使用的商品说明与评价](/h-life/nipple/kaihatsu+iki/page-3.html)”
 
 如果感兴趣，请浏览。
 

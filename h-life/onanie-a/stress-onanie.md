@@ -24,9 +24,9 @@
 
 但是，只要稍微下点功夫，手冲自慰就会变得格外舒服哦！
 
-[手冲（手淫）自慰的方法总结](/onanie-a/tekoki-matome.html)
+[手冲（手淫）自慰的方法总结](/h-life/onanie-a/tekoki-matome.html)
 
-[【无需成人用品】手冲（手淫）自慰的舒服方法【无需道具！】](/onanie-a/zoufuku001.html)
+[【无需成人用品】手冲（手淫）自慰的舒服方法【无需道具！】](/h-life/onanie-a/zoufuku001.html)
 
 ### 逐渐产生弊端？ [​](#逐渐产生弊端)
 
@@ -38,9 +38,9 @@
 
 关于自慰的缺点，在以下文章中进行了总结。
 
-[【有损健康？】关于自慰的缺点的真相与谎言【会降低运气？】](/onanie-a/demerit.html)
+[【有损健康？】关于自慰的缺点的真相与谎言【会降低运气？】](/h-life/onanie-a/demerit.html)
 
-[不可小觑！自慰的缺点总结](/onanie-a/ona-demerit.html)
+[不可小觑！自慰的缺点总结](/h-life/onanie-a/ona-demerit.html)
 
 此外，身体变得疲惫，也意味着免疫力下降。
 
@@ -62,9 +62,9 @@
 
 如果连这种超短期的戒撸都很难做到，请参考以下文章。
 
-[确保成功并持续禁欲的方法总结](/onanie-a/onakin.html)
+[确保成功并持续禁欲的方法总结](/h-life/onanie-a/onakin.html)
 
-[确保成功并持续禁欲的方法总结](/onanie-a/onakin.html)
+[确保成功并持续禁欲的方法总结](/h-life/onanie-a/onakin.html)
 
 如果能找到让人感到舒服的方法，自慰就会变成一种乐趣，结果就能减轻每天的压力。
 
@@ -72,7 +72,7 @@
 
 这些内容，在以下文章中进行了总结。
 
-・[男性的生理期？ 将性欲的生物节律应用于自慰或禁欲](/onanie-a/biorhythm.html)
+・[男性的生理期？ 将性欲的生物节律应用于自慰或禁欲](/h-life/onanie-a/biorhythm.html)
 
 ### 让人感到舒服的自慰方法 [​](#让人感到舒服的自慰方法)
 
@@ -80,11 +80,11 @@
 
 首先请参考以下的总结文章！
 
-[如何进行令人愉悦的蓄积自慰（禁欲后的自慰）](/onanie-a/kaikan1.html)
+[如何进行令人愉悦的蓄积自慰（禁欲后的自慰）](/h-life/onanie-a/kaikan1.html)
 
-[12种轻松舒适的自慰方式介绍！](/onanie-a/easy12.html)
+[12种轻松舒适的自慰方式介绍！](/h-life/onanie-a/easy12.html)
 
-[12种超舒服的自慰方式介绍！【略高难度】](/onanie-a/onanie12.html)
+[12种超舒服的自慰方式介绍！【略高难度】](/h-life/onanie-a/onanie12.html)
 
 从上述文章中找到适合自己的方法后，请参考链接文章中的信息进行仔细研究。
 

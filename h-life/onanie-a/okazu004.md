@@ -1,6 +1,6 @@
 # 部分图片下载受限…图片搜索之外的找片方法总结 [​](#部分图片下载受限-图片搜索之外的找片方法总结)
 
-正如[如何找到好的色情图片、搜索技巧和秘诀总结](/onanie-a/okazu001.html)中提到的，由于法律修订，从2021年1月1日起，
+正如[如何找到好的色情图片、搜索技巧和秘诀总结](/h-life/onanie-a/okazu001.html)中提到的，由于法律修订，从2021年1月1日起，
 
 “明知是非法上传的漫画（图片），还进行下载的行为”
 
@@ -184,9 +184,9 @@ dugafpwc("320","240","dugaflvplayer-lotus-0561","[https://click.duga.jp/ppv/lotu
 
 首先，请看这里了解音声作品的概要。
 
-[如何在声音作品中模拟性爱体验，方法总结](/onanie-a/voice001.html)
+[如何在声音作品中模拟性爱体验，方法总结](/h-life/onanie-a/voice001.html)
 
-[有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/onanie-a/chikubi006.html)
+[有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/h-life/onanie-a/chikubi006.html)
 
 正如我在上述文章中写到的，音声作品的优点在于“听众自身可以模拟体验性爱”。
 
@@ -238,9 +238,9 @@ dugafpwc("320","240","dugaflvplayer-lotus-0561","[https://click.duga.jp/ppv/lotu
 
 关于意淫的概要，请看以下文章！
 
-[【无需成人用品！】在推特上进行性幻想比自慰更舒服？](/onanie-a/twitter001.html)
+[【无需成人用品！】在推特上进行性幻想比自慰更舒服？](/h-life/onanie-a/twitter001.html)
 
-[推特性暗示聊天（イメプ）的魅力、技巧与相处方式总结](/onanie-a/twitter005.html)
+[推特性暗示聊天（イメプ）的魅力、技巧与相处方式总结](/h-life/onanie-a/twitter005.html)
 
 在意淫的情况下，（虽然是虚拟的）自己亲自参与性互动，因此我认为比音声作品更能直接地进行性模拟体验。
 
@@ -248,7 +248,7 @@ dugafpwc("320","240","dugaflvplayer-lotus-0561","[https://click.duga.jp/ppv/lotu
 
 在某些情况下，“自己和某人进行色情对话的记录”可能会成为最好的片源。
 
-正如[如何在没有成人用品的情况下获得快感的自慰，寻找合适的自慰素材总结](/onanie-a/okazu.html)所说，果然意淫的第三方视角较少，当事人感觉更强。
+正如[如何在没有成人用品的情况下获得快感的自慰，寻找合适的自慰素材总结](/h-life/onanie-a/okazu.html)所说，果然意淫的第三方视角较少，当事人感觉更强。
 
 ### 缺点很多 [​](#缺点很多)
 
@@ -258,7 +258,7 @@ dugafpwc("320","240","dugaflvplayer-lotus-0561","[https://click.duga.jp/ppv/lotu
 
 关于这些缺点以及解决方案，请看以下文章～
 
-+   [【推特】安全且巧妙地进行角色扮演账号活动的方法总结](/onanie-a/twitter004.html)
++   [【推特】安全且巧妙地进行角色扮演账号活动的方法总结](/h-life/onanie-a/twitter004.html)
 
 ## 总结 [​](#总结)
 
@@ -268,7 +268,7 @@ dugafpwc("320","240","dugaflvplayer-lotus-0561","[https://click.duga.jp/ppv/lotu
 
 同时，由于“搜索图片”的行为本身也大幅减少，因此对这次的法案没有太大的震惊……
 
-关于这件事，详情请看[如何找到好的色情图片、搜索技巧和秘诀总结](/onanie-a/okazu001.html)。
+关于这件事，详情请看[如何找到好的色情图片、搜索技巧和秘诀总结](/h-life/onanie-a/okazu001.html)。
 
 并且，请不要向不接受R18委托的画师提出R18的委托。
 

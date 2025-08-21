@@ -30,17 +30,17 @@
 
 ## 发生雌性高潮时，会有什么样的感觉 [​](#发生雌性高潮时-会有什么样的感觉)
 
-“**[雌性高潮时发生的现象和感觉的说明](/femorg/femorg-seikan/page-a4-6.html)**”
+“**[雌性高潮时发生的现象和感觉的说明](/h-life/femorg/femorg-seikan/page-a4-6.html)**”
 
-“**[雌性高潮自慰中快感体验总结](/femorg/femorg-seikan/page-a4-16.html)**”
+“**[雌性高潮自慰中快感体验总结](/h-life/femorg/femorg-seikan/page-a4-16.html)**”
 
 里有总结。
 
-（另外，充分开发雌性性感后，身体会变成“**[关于开发雌性高潮性感后身体变化的说明](/femorg/kakusei/page-a4-28.html)**”里描述的状态）
+（另外，充分开发雌性性感后，身体会变成“**[关于开发雌性高潮性感后身体变化的说明](/h-life/femorg/kakusei/page-a4-28.html)**”里描述的状态）
 
 ## 关于雌性高潮的优点和缺点 [​](#关于雌性高潮的优点和缺点)
 
-在“**[关于雌性高潮自慰的优点与缺点](/femorg/info/page-a4-21.html)**”中记载。
+在“**[关于雌性高潮自慰的优点与缺点](/h-life/femorg/info/page-a4-21.html)**”中记载。
 
 ## 怎样才能让男性也感受到如女性般的快感 [​](#怎样才能让男性也感受到如女性般的快感)
 
@@ -48,15 +48,15 @@
 
 详细内容，请查看
 
-“**[什么是雌性高潮（雌性高潮的说明）](/femorg/intro/page-a4-1.html)**”
+“**[什么是雌性高潮（雌性高潮的说明）](/h-life/femorg/intro/page-a4-1.html)**”
 
-“**[什么是雌性高潮自慰](/femorg/intro/page-a4-9.html)**”
+“**[什么是雌性高潮自慰](/h-life/femorg/intro/page-a4-9.html)**”
 
-“**[如果想体验雌性高潮应该从什么开始](/femorg/nyuumon/page-a4-17.html)**”
+“**[如果想体验雌性高潮应该从什么开始](/h-life/femorg/nyuumon/page-a4-17.html)**”
 
-“**[推荐的雌性高潮性开发方法总结](/femorg/dry-seikan/page-a4-4.html)**”
+“**[推荐的雌性高潮性开发方法总结](/h-life/femorg/dry-seikan/page-a4-4.html)**”
 
-“**[雌性高潮可能的性感带种类与开发方法总结](/femorg/dry-seikan/page-a4-5.html)**”
+“**[雌性高潮可能的性感带种类与开发方法总结](/h-life/femorg/dry-seikan/page-a4-5.html)**”
 
 等处，请确认内容。
 
@@ -66,11 +66,11 @@
 
 不了解缺点的人，请参考以下文章。
 
-“**[关于雌性高潮的风险和问题](/femorg/risuku/page-a4-3.html)**”
+“**[关于雌性高潮的风险和问题](/h-life/femorg/risuku/page-a4-3.html)**”
 
-“**[男性女性化（关于女性荷尔蒙影响的说明）](/femorg/risuku/page-a4-14.html)**”
+“**[男性女性化（关于女性荷尔蒙影响的说明）](/h-life/femorg/risuku/page-a4-14.html)**”
 
-“**[关于雌性高潮和干性高潮的安全性](/femorg/risuku/page-a4-27.html)**”
+“**[关于雌性高潮和干性高潮的安全性](/h-life/femorg/risuku/page-a4-27.html)**”
 
 不了解缺点就进行雌性高潮自慰，之后可能会发生严重的事情，请注意。
 
@@ -86,11 +86,11 @@
 
 记住以下内容，可以提高雌性高潮自慰的快感和干性高潮的成功率。
 
-+   “**[给无法顺利“雌性高潮”的人的建议](/femorg/onani-tekunikku/page-a4-8.html)**”
-+   “**[雌性高潮自慰前增强雌性高潮性感的好处](/femorg/info/page-a4-22.html)**”
-+   “**[增强雌性高潮性感，享受愉悦自慰的方法总结](/femorg/houhou/page-a4-24.html)**”
-+   “**[关于雌性高潮自慰成功率和失败原因](/femorg/info/page-a4-20.html)**”
-+   “**[用色情的想象来增强雌性高潮自慰快感的方法总结](/femorg/onani-tekunikku/page-a4-7.html)**”
++   “**[给无法顺利“雌性高潮”的人的建议](/h-life/femorg/onani-tekunikku/page-a4-8.html)**”
++   “**[雌性高潮自慰前增强雌性高潮性感的好处](/h-life/femorg/info/page-a4-22.html)**”
++   “**[增强雌性高潮性感，享受愉悦自慰的方法总结](/h-life/femorg/houhou/page-a4-24.html)**”
++   “**[关于雌性高潮自慰成功率和失败原因](/h-life/femorg/info/page-a4-20.html)**”
++   “**[用色情的想象来增强雌性高潮自慰快感的方法总结](/h-life/femorg/onani-tekunikku/page-a4-7.html)**”
 
 想要达到雌性高潮，开发雌性性感带是必须的……但仅仅这样，无法达到理想的雌性高潮。
 

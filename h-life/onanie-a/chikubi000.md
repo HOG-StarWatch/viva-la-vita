@@ -18,12 +18,12 @@
 
 关于乳首开发的方法和操作本身，请参考以下文章。
 
-+   [任何人都能上手的乳首开发入门・初级篇](/onanie-a/chikubi002.html)
-+   [开始乳首自慰（乳首自慰）的准备和心态](/onanie-a/chikubi001.html)
++   [任何人都能上手的乳首开发入门・初级篇](/h-life/onanie-a/chikubi002.html)
++   [开始乳首自慰（乳首自慰）的准备和心态](/h-life/onanie-a/chikubi001.html)
 
 此外，如果想快速且可靠地开发乳首，请点击此处。
 
-+   [使用磁针贴能高概率成功开发乳首！？](/onanie-a/chikubi010.html)
++   [使用磁针贴能高概率成功开发乳首！？](/h-life/onanie-a/chikubi010.html)
 
 如果您想以相对安全且悠闲的方式开发乳首，请继续阅读。
 
@@ -179,9 +179,9 @@ AV的大部分都是以男性生殖器为中心的表演和拍摄，大概也是
 
 在以下文章中讲述了各种方法，请务必参考。
 
-+   [乳首自慰无法达到干性高潮的解决方案总结](/onanie-a/chikubi004.html)
-+   [乳首开发有效想象方法总结](/onanie-a/chikubi011.html)
-+   [有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/onanie-a/chikubi006.html)
++   [乳首自慰无法达到干性高潮的解决方案总结](/h-life/onanie-a/chikubi004.html)
++   [乳首开发有效想象方法总结](/h-life/onanie-a/chikubi011.html)
++   [有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/h-life/onanie-a/chikubi006.html)
 
 但是，也许会遇到无论做什么都无法顺利开发乳首，无法达到干性高潮的情况。
 

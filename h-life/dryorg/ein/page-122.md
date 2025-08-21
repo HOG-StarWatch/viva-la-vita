@@ -10,7 +10,7 @@
 
 ## 关于会阴自慰 [​](#关于会阴自慰)
 
-关于会阴部的自慰，请参考“**[会阴自慰方法总结](/dryorg/ein/page-119.html)**”！
+关于会阴部的自慰，请参考“**[会阴自慰方法总结](/h-life/dryorg/ein/page-119.html)**”！
 
 ## 关于可用于自慰的塑料瓶 [​](#关于可用于自慰的塑料瓶)
 
@@ -76,7 +76,7 @@
 
 如果没有进行会阴的性开发，**则没有效果**。
 
-请从“**[开发会阴性感的方法总结](/dryorg/ein/page-12.html)**”开始进行性开发。
+请从“**[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)**”开始进行性开发。
 
 ### 已开发会阴性感的情况 [​](#已开发会阴性感的情况)
 
@@ -104,7 +104,7 @@
     
     有兴趣的朋友，请参考“**[乳首开发方法总结](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-list-nipple)**”。
     
-    （方法记载在“**[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.html)**”中）
+    （方法记载在“**[矿泉水瓶+乳首自慰的手法](/h-life/nipple/chikuni/page-18.html)**”中）
     
 4.  会阴自慰＋刺激其他性感带
     
@@ -205,13 +205,13 @@
 
 ## 进一步提高快感的方法 [​](#进一步提高快感的方法)
 
-+   导入“**[强化性感的方法总结](/nipple/jyouhou/page-19.html)**”
++   导入“**[强化性感的方法总结](/h-life/nipple/jyouhou/page-19.html)**”
     
-+   定期进行“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”
++   定期进行“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”
     
     相当重要。锻炼骨盆底肌（PC肌）的性感，会增强会阴性感。
     
-+   进行“**[开发会阴性感的方法总结](/dryorg/ein/page-12.html)**”
++   进行“**[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)**”
     
 +   进行“**[乳首开发方法](https://web.archive.org/web/20190916020443/http://adlib1.net/ws2/h-life/page-list-nipple)**”
     

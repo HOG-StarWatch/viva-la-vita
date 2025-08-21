@@ -2,9 +2,9 @@
 
 如果飞机杯用起来感觉不太爽，本站之前已经多次写过原因和对策。
 
-・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/onanie-a/onaho-taisaku1.html)
+・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/h-life/onanie-a/onaho-taisaku1.html)
 
-・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/onanie-a/onaho3.html)
+・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/h-life/onanie-a/onaho3.html)
 
 那些文章主要写的是飞机杯的使用方法和想象技巧等信息。
 
@@ -148,7 +148,7 @@
 
 然后，
 
-・[安全高效地寻找色情图片和视频的方法总结](/onanie-a/gazou-video.html)
+・[安全高效地寻找色情图片和视频的方法总结](/h-life/onanie-a/gazou-video.html)
 
 参考这篇文章等，寻找素材…
 
@@ -164,11 +164,11 @@
 
 详情请阅读这篇文章。
 
-・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/onanie-a/onaho-taisaku1.html)
+・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/h-life/onanie-a/onaho-taisaku1.html)
 
-・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/onanie-a/onaho3.html)
+・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/h-life/onanie-a/onaho3.html)
 
-・[便宜又舒服的人气飞机杯总结](/onanie-a/reasonable-onaho.html)
+・[便宜又舒服的人气飞机杯总结](/h-life/onanie-a/reasonable-onaho.html)
 
 ### 暂时慢慢地、静静地 [​](#暂时慢慢地、静静地)
 
@@ -202,7 +202,7 @@
 
 在这里，同时摇动腰部也很有效。
 
-・[使用充气娃娃等进行腰部摆动自慰的方法、技巧总结](/onanie-a/koshifuri01.html)
+・[使用充气娃娃等进行腰部摆动自慰的方法、技巧总结](/h-life/onanie-a/koshifuri01.html)
 
 ### 拥抱 [​](#拥抱)
 
@@ -260,9 +260,9 @@
 
 除了这次介绍的方法之外，参考以下文章，进行迎接干性高潮的训练等，也可以提高射精的快感。
 
-・[乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.html)
+・[乳首自慰（乳首自慰）的方法总结](/h-life/onanie-a/chikubi003.html)
 
-・[男性达到干性高潮的方法・技巧总结](/onanie-a/dry-orgasm001.html)
+・[男性达到干性高潮的方法・技巧总结](/h-life/onanie-a/dry-orgasm001.html)
 
 另外，这次的重点是“不要马上射精，要积攒”。
 

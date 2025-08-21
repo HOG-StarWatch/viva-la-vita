@@ -16,9 +16,9 @@
 
 这样的人，首先请看看这些文章。
 
-・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/onanie-a/onaho-taisaku1.html)
+・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/h-life/onanie-a/onaho-taisaku1.html)
 
-・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/onanie-a/onaho3.html)
+・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/h-life/onanie-a/onaho3.html)
 
 如果改变方法，或者想象力发挥得好，或许用飞机杯也能充分感受到快感。
 
@@ -82,7 +82,7 @@
 
 总之，请先阅读这篇文章。
 
-・[为了不让家人看到自慰的样子和自慰用品的对策](/onanie-a/ona-bare-orz.html)
+・[为了不让家人看到自慰的样子和自慰用品的对策](/h-life/onanie-a/ona-bare-orz.html)
 
 如果拥有宽敞的单间，或许可以巧妙地抬高大纸箱的底部，藏在下面，但…
 
@@ -120,9 +120,9 @@
 
 自慰过度是不好的。
 
-・[不可小觑！自慰的缺点总结](/onanie-a/ona-demerit.html)
+・[不可小觑！自慰的缺点总结](/h-life/onanie-a/ona-demerit.html)
 
-・[通过手冲自慰来缓解压力是好事吗](/onanie-a/stress-onanie.html)
+・[通过手冲自慰来缓解压力是好事吗](/h-life/onanie-a/stress-onanie.html)
 
 另外，没有脸，既是优点也是缺点。
 

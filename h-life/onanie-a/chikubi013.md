@@ -4,13 +4,13 @@
 
 到目前为止，在以下文章中，我们已经讨论了开发乳首并享受乳首自慰的方法。
 
-[任何人都能上手的乳首开发入门・初级篇](/onanie-a/chikubi002.html)
+[任何人都能上手的乳首开发入门・初级篇](/h-life/onanie-a/chikubi002.html)
 
-[成功开发乳首的技巧总结](/onanie-a/chikubi000.html)
+[成功开发乳首的技巧总结](/h-life/onanie-a/chikubi000.html)
 
-[乳首开发有效想象方法总结](/onanie-a/chikubi011.html)
+[乳首开发有效想象方法总结](/h-life/onanie-a/chikubi011.html)
 
-[从“乳首自慰（乳首自慰）到干性高潮”的最短路线](/onanie-a/chikubi018.html)
+[从“乳首自慰（乳首自慰）到干性高潮”的最短路线](/h-life/onanie-a/chikubi018.html)
 
 这次作为集大成，我想谈谈乳首自慰时有效的各种想象。
 
@@ -32,7 +32,7 @@
 
 ### 技巧 [​](#技巧)
 
-特别是，如果隔着[关于穿着胸罩和内裤（女式内裤）进行伪娘自慰的方法总结](/onanie-a/bra-panties.html)等薄衣服用指尖轻轻挠痒痒，这种想象就很容易成功。
+特别是，如果隔着[关于穿着胸罩和内裤（女式内裤）进行伪娘自慰的方法总结](/h-life/onanie-a/bra-panties.html)等薄衣服用指尖轻轻挠痒痒，这种想象就很容易成功。
 
 但是绝对不能抓挠！
 

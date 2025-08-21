@@ -6,7 +6,7 @@
 
 ## 雌性高潮是什么？ [​](#雌性高潮是什么)
 
-关于雌性高潮的内容，已汇总在[什么是雌性高潮（雌性高潮的说明）](/femorg/intro/page-a4-1.html)中。
+关于雌性高潮的内容，已汇总在[什么是雌性高潮（雌性高潮的说明）](/h-life/femorg/intro/page-a4-1.html)中。
 
 ## 雌性高潮自慰的说明（概要） [​](#雌性高潮自慰的说明-概要)
 
@@ -170,8 +170,8 @@
 
 如果您对雌性高潮自慰感兴趣，
 
-[推荐的雌性高潮性开发方法总结](/femorg/dry-seikan/page-a4-4.html)
+[推荐的雌性高潮性开发方法总结](/h-life/femorg/dry-seikan/page-a4-4.html)
 
-[雌性高潮可能的性感带种类与开发方法总结](/femorg/dry-seikan/page-a4-5.html)
+[雌性高潮可能的性感带种类与开发方法总结](/h-life/femorg/dry-seikan/page-a4-5.html)
 
 也请阅读一下。您会了解雌性高潮性感带的开发方法。

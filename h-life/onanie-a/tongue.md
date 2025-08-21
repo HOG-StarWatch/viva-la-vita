@@ -86,19 +86,19 @@
 
 关于龟头责め和阴囊自慰的信息请看这里。
 
-[龟头责め自慰的方法总结](/onanie-a/kitou001.html)
+[龟头责め自慰的方法总结](/h-life/onanie-a/kitou001.html)
 
-[玉袋（阴囊）自慰（タマニー）的方法总结](/onanie-a/tamabukuro.html)
+[玉袋（阴囊）自慰（タマニー）的方法总结](/h-life/onanie-a/tamabukuro.html)
 
 ### 对乳首怎么样 [​](#对乳首怎么样)
 
 关于乳首自慰这种行为本身，请看这些文章。
 
-[任何人都能上手的乳首开发入门・初级篇](/onanie-a/chikubi002.html)
+[任何人都能上手的乳首开发入门・初级篇](/h-life/onanie-a/chikubi002.html)
 
-[乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.html)
+[乳首自慰（乳首自慰）的方法总结](/h-life/onanie-a/chikubi003.html)
 
-[从“乳首自慰（乳首自慰）到干性高潮”的最短路线](/onanie-a/chikubi018.html)
+[从“乳首自慰（乳首自慰）到干性高潮”的最短路线](/h-life/onanie-a/chikubi018.html)
 
 那么，这款『舌头震动器』，对于乳首责め来说，怎么样呢？
 
@@ -142,7 +142,7 @@
 
 从随意持续给予局部刺激的意义上来说，也可以用于男人的潮吹。
 
-・[男人潮吹自慰的方法总结](/onanie-a/siohuki001.html)
+・[男人潮吹自慰的方法总结](/h-life/onanie-a/siohuki001.html)
 
 如上文所述，要体验男人的潮吹，需要在射精后，不断地刺激变得敏感的龟头。
 
@@ -172,9 +172,9 @@
 
 请参考以下内容。
 
-[如何找到好的色情图片、搜索技巧和秘诀总结](/onanie-a/okazu001.html)
+[如何找到好的色情图片、搜索技巧和秘诀总结](/h-life/onanie-a/okazu001.html)
 
-[利用“被龟头责备的印象”的自慰很舒服！？](/onanie-a/kitou002.html)
+[利用“被龟头责备的印象”的自慰很舒服！？](/h-life/onanie-a/kitou002.html)
 
 此外，使用舌头玩具进行乳首自慰时，推荐『B.B. Boysに目覚めちゃった僕。小悪魔編5』！
 

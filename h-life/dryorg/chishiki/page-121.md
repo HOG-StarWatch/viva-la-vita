@@ -20,23 +20,23 @@
 
 ## 首先，应该做什么 [​](#首先-应该做什么)
 
-请查看“**[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.html)**”，决定是否可以进行乳首的性开发。
+请查看“**[关于乳首开发的风险](/h-life/nipple/kaihatsu+iki/page-10.html)**”，决定是否可以进行乳首的性开发。
 
-如果OK，就继续往下说。如果NG，建议享受“**[催眠自慰](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-list-hypno)**”、“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”、“**[冥想自慰方法总结](/dryorg/yarikata/page-92.html)**”等。
+如果OK，就继续往下说。如果NG，建议享受“**[催眠自慰](https://web.archive.org/web/20190909094324/http://adlib1.net/ws2/h-life/page-list-hypno)**”、“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”、“**[冥想自慰方法总结](/h-life/dryorg/yarikata/page-92.html)**”等。
 
 那么，从乳首开发开始的情况……
 
-“**[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.html)**”
+“**[关于高效乳首开发方法（使用磁针贴进行性开发）](/h-life/nipple/kaihatsu+iki/page-2.html)**”
 
-“**[【新手向】乳首开发入门讲座](/nipple/intro/page-41.html)**”
+“**[【新手向】乳首开发入门讲座](/h-life/nipple/intro/page-41.html)**”
 
 看看这些，大致就明白了。乳首性感带的培育，使用磁针贴是最快捷的。
 
 **同时**，也开发会阴。之后会变得重要。
 
-“**[会阴自慰方法总结](/dryorg/ein/page-119.html)**”
+“**[会阴自慰方法总结](/h-life/dryorg/ein/page-119.html)**”
 
-“**[开发会阴性感的方法总结](/dryorg/ein/page-12.html)**”
+“**[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)**”
 
 关于会阴开发，上述两篇文章比较容易理解。
 
@@ -50,17 +50,17 @@
 
 在此期间，加入各种性开发要素，开发“身体的性感带”和“脑内快感神经”。
 
-“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”
+“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”
 
-“**[意淫自慰方法总结](/dryorg/yarikata/page-28.html)**”
+“**[意淫自慰方法总结](/h-life/dryorg/yarikata/page-28.html)**”
 
-“**[冥想自慰方法总结](/dryorg/yarikata/page-92.html)**”
+“**[冥想自慰方法总结](/h-life/dryorg/yarikata/page-92.html)**”
 
-“**[B点（斯宾塞腋窝尾部）的开发和爱抚方法总结](/nipple/chibusa/page-95.html)**”
+“**[B点（斯宾塞腋窝尾部）的开发和爱抚方法总结](/h-life/nipple/chibusa/page-95.html)**”
 
-“**[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.html)**”
+“**[矿泉水瓶+乳首自慰的手法](/h-life/nipple/chikuni/page-18.html)**”
 
-“**[棉棒自慰（棉棒肛门自慰）方法总结](/buttocks/page-63.html)**”（仅限可以轻轻插入肛门的情况）
+“**[棉棒自慰（棉棒肛门自慰）方法总结](/h-life/buttocks/page-63.html)**”（仅限可以轻轻插入肛门的情况）
 
 对性开发有力的，大概就是这些。特别是“**能量**”和“**冥想**”不错。（别忘了会阴自慰～）
 
@@ -72,35 +72,35 @@
 
 催眠自慰通过使用身体性感开发系、干性高潮系、乳首开发系这3种，可以一口气强化乳首的性感。
 
-（顺便，也请阅读“**[关于快速培养乳头性感的技巧](/nipple/kaihatsu+iki/page-43.html)**”）
+（顺便，也请阅读“**[关于快速培养乳头性感的技巧](/h-life/nipple/kaihatsu+iki/page-43.html)**”）
 
 之后，
 
-“**[关于性感带的说明](/dryorg/seikantai/page-74.html)**”
+“**[关于性感带的说明](/h-life/dryorg/seikantai/page-74.html)**”
 
-“**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.html)**”
+“**[关于干性高潮的技巧和知识](/h-life/dryorg/intro/page-55.html)**”
 
-“**[强化性感的方法总结](/nipple/jyouhou/page-19.html)**”
+“**[强化性感的方法总结](/h-life/nipple/jyouhou/page-19.html)**”
 
 学习关于性感和干性高潮的知识。
 
 特别是，强化性感的方法是非常重要的事项。……在磁针贴的休息期间进行乳首自慰时，是否进行了性感强化，快感的成长率会大大改变。
 
-还有，如果可以忍受一些疼痛，“**[用木制夹子夹乳首的方法总结](/nipple/kaihatsu+iki/page-118.html)**”也推荐。
+还有，如果可以忍受一些疼痛，“**[用木制夹子夹乳首的方法总结](/h-life/nipple/kaihatsu+iki/page-118.html)**”也推荐。
 
 ## 关于身体的性开发和乳首开发 [​](#关于身体的性开发和乳首开发)
 
-一边通过“**[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.html)**”确认自己的乳首的敏感度等级，一边继续进行性开发。
+一边通过“**[关于乳首的敏感度等级](/h-life/nipple/kaihatsu+iki/page-1.html)**”确认自己的乳首的敏感度等级，一边继续进行性开发。
 
-另外，也多用“催眠自慰”，一边看“**[干性催眠的性感度等级列表](/hypnosis/page-111.html)**”，一边确认自己的大脑的快感神经发展到了什么程度。
+另外，也多用“催眠自慰”，一边看“**[干性催眠的性感度等级列表](/h-life/hypnosis/page-111.html)**”，一边确认自己的大脑的快感神经发展到了什么程度。
 
 日积月累，**在有规律的生活的同时**，一点点提升等级……不久，就能通过乳首自慰引起轻微的干性高潮。
 
 （不规律的生活会阻碍快感神经的发展，所以要过健康的生活）
 
-（如果微妙地无法达到高潮，请看“**[给乳首高潮难以达到者的建议](/nipple/nayami/page-39.html)**”）
+（如果微妙地无法达到高潮，请看“**[给乳首高潮难以达到者的建议](/h-life/nipple/nayami/page-39.html)**”）
 
-还有，如果想干性高潮却被阴茎的射精妨碍，请看“**[分离乳首性感和射精感的方法总结](/nipple/nayami/page-42.html)**”。
+还有，如果想干性高潮却被阴茎的射精妨碍，请看“**[分离乳首性感和射精感的方法总结](/h-life/nipple/nayami/page-42.html)**”。
 
 在干性自慰的过程中，禁止阴茎的射精。如果诱发了射精，无论如何都要阻止。因为无法进入下一个阶段。
 
@@ -125,7 +125,7 @@
 
 ## 非常舒服的干性自慰的做法 [​](#非常舒服的干性自慰的做法)
 
-“**[理想的乳首自慰流程](/nipple/chikuni/page-14.html)**”和“**[会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/dryorg/ein/page-120.html)**”可以参考。
+“**[理想的乳首自慰流程](/h-life/nipple/chikuni/page-14.html)**”和“**[会阴和乳首的同時刺激，享受强烈干性高潮的方法总结](/h-life/dryorg/ein/page-120.html)**”可以参考。
 
 用充分进行性开发的身体，引起“乳首高潮×2 → 乳首＋会阴高潮”，就能迎来极致快感的干性高潮哦～。
 

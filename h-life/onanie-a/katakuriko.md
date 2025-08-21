@@ -134,11 +134,11 @@
 
 然后，参考以下文章，享受倒模自慰的乐趣吧！
 
-・[让你爽到飞起的飞机杯自慰方法总结](/onanie-a/onaho-kaikan.html)
+・[让你爽到飞起的飞机杯自慰方法总结](/h-life/onanie-a/onaho-kaikan.html)
 
-・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/onanie-a/onaho-taisaku1.html)
+・[当飞机杯不舒服时的解决方案和飞机杯的舒适用法](/h-life/onanie-a/onaho-taisaku1.html)
 
-・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/onanie-a/onaho3.html)
+・[这样就能获得舒适的飞机杯自慰体验？飞机杯不舒服的解决方法](/h-life/onanie-a/onaho3.html)
 
 使用这些商品，也可以加热倒模。
 
@@ -166,7 +166,7 @@
 
 也请参考这里。
 
-・[舒爽的润滑液自慰方法总结](/onanie-a/lotion001.html)
+・[舒爽的润滑液自慰方法总结](/h-life/onanie-a/lotion001.html)
 
 ## 结语 [​](#结语)
 
@@ -176,7 +176,7 @@
 
 总之，
 
-・[为了不让家人看到自慰的样子和自慰用品的对策](/onanie-a/ona-bare-orz.html)
+・[为了不让家人看到自慰的样子和自慰用品的对策](/h-life/onanie-a/ona-bare-orz.html)
 
 也请参考这篇文章…
 

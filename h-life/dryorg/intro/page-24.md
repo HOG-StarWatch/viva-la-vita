@@ -22,7 +22,7 @@
 
 更详细的内容，请阅览
 
-“[关于乳首开发](/nipple/intro/page-9.html)”。
+“[关于乳首开发](/h-life/nipple/intro/page-9.html)”。
 
 ## 快感的程度 [​](#快感的程度)
 
@@ -95,7 +95,7 @@
 
 “[**乳首开发方法总结**](https://web.archive.org/web/20190909095640/http://adlib1.net/ws2/h-life/page-list-nipple)”
 
-“[催眠自慰的方法](/dryorg/yarikata/page-16.html)”
+“[催眠自慰的方法](/h-life/dryorg/yarikata/page-16.html)”
 
 中的一种（或两种）呢？
 
@@ -137,9 +137,9 @@
 
 ## 干性高潮的技巧 [​](#干性高潮的技巧)
 
-+   [强化性感的方法总结](/nipple/jyouhou/page-19.html) 的导入
++   [强化性感的方法总结](/h-life/nipple/jyouhou/page-19.html) 的导入
 
-性感会随着身体状况和兴奋程度而发生很大变化。喜欢自慰的朋友请记住“[强化性感的方法总结](/nipple/jyouhou/page-19.html)”！
+性感会随着身体状况和兴奋程度而发生很大变化。喜欢自慰的朋友请记住“[强化性感的方法总结](/h-life/nipple/jyouhou/page-19.html)”！
 
 ## 关于干性高潮的补充 [​](#关于干性高潮的补充)
 
@@ -191,4 +191,4 @@
 
 以上。
 
-**想要像女性一样达到高潮！** 抱着这样的决心，想要正式开始的朋友，推荐您仔细阅读并实践“[关于乳首开发](/nipple/intro/page-9.html)”。……我认为干性高潮中，“乳首＋会阴”带来的高潮是快感最强的。
+**想要像女性一样达到高潮！** 抱着这样的决心，想要正式开始的朋友，推荐您仔细阅读并实践“[关于乳首开发](/h-life/nipple/intro/page-9.html)”。……我认为干性高潮中，“乳首＋会阴”带来的高潮是快感最强的。

@@ -8,9 +8,9 @@
 
 ## 性开发方法不太清楚的情况 [​](#性开发方法不太清楚的情况)
 
-“[什么是雌性高潮（雌性高潮的说明）](/femorg/intro/page-a4-1.html)”
+“[什么是雌性高潮（雌性高潮的说明）](/h-life/femorg/intro/page-a4-1.html)”
 
-“[雌性高潮可能的性感带种类与开发方法总结](/femorg/dry-seikan/page-a4-5.html)”
+“[雌性高潮可能的性感带种类与开发方法总结](/h-life/femorg/dry-seikan/page-a4-5.html)”
 
 这两篇文章很有参考价值，请阅读一下！
 
@@ -172,7 +172,7 @@
 
 使用色情内容或享受成人内容时，推荐快感类型的。
 
-“[強化男性雌性高潮快感的色情图片特征](/femorg/info/page-a4-42.html)”这篇文章可以作为参考。
+“[強化男性雌性高潮快感的色情图片特征](/h-life/femorg/info/page-a4-42.html)”这篇文章可以作为参考。
 
 如果是开发乳首，就选择乳首色情系。如果是开发前列腺，选择被前列腺调教的伪娘也不错。
 
@@ -184,9 +184,9 @@
 
 感觉越舒服，性感带的成长速度就越快。
 
-“[增强雌性高潮性感，享受愉悦自慰的方法总结](/femorg/houhou/page-a4-24.html)”
+“[增强雌性高潮性感，享受愉悦自慰的方法总结](/h-life/femorg/houhou/page-a4-24.html)”
 
-“[用色情的想象来增强雌性高潮自慰快感的方法总结](/femorg/onani-tekunikku/page-a4-7.html)”
+“[用色情的想象来增强雌性高潮自慰快感的方法总结](/h-life/femorg/onani-tekunikku/page-a4-7.html)”
 
 参考这些文章，增强干性自慰的快感吧！
 
@@ -196,12 +196,12 @@
 
 作为相关内容，
 
-“[体验如女性般的快感并达到高潮的方法总结](/femorg/nyuumon/page-a4-29.html)”
+“[体验如女性般的快感并达到高潮的方法总结](/h-life/femorg/nyuumon/page-a4-29.html)”
 
-“[雌性高潮可能的性感带种类与开发方法总结](/femorg/dry-seikan/page-a4-5.html)”
+“[雌性高潮可能的性感带种类与开发方法总结](/h-life/femorg/dry-seikan/page-a4-5.html)”
 
-“[雌性高潮性感带的成长方法总结](/femorg/dry-seikan/page-a4-13.html)”
+“[雌性高潮性感带的成长方法总结](/h-life/femorg/dry-seikan/page-a4-13.html)”
 
-“[给无法顺利“雌性高潮”的人的建议](/femorg/onani-tekunikku/page-a4-8.html)”
+“[给无法顺利“雌性高潮”的人的建议](/h-life/femorg/onani-tekunikku/page-a4-8.html)”
 
 的信息也很有用，有兴趣的人请阅读一下。

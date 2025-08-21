@@ -2,11 +2,11 @@
 
 本网站至今为止，已经讨论过各种乳首开发的方法。
 
-[任何人都能上手的乳首开发入门・初级篇](/onanie-a/chikubi002.html)
+[任何人都能上手的乳首开发入门・初级篇](/h-life/onanie-a/chikubi002.html)
 
-[成功开发乳首的技巧总结](/onanie-a/chikubi000.html)
+[成功开发乳首的技巧总结](/h-life/onanie-a/chikubi000.html)
 
-[使用磁针贴能高概率成功开发乳首！？](/onanie-a/chikubi010.html)
+[使用磁针贴能高概率成功开发乳首！？](/h-life/onanie-a/chikubi010.html)
 
 乳首自慰，简称乳首自慰，是男性能够达到干性高潮的自慰方式中，为数不多的不需要特殊技巧和风险的方法。
 
@@ -188,9 +188,9 @@ AV的情况，总觉得没有羞耻的青涩感，
 
 请务必一并阅读过去的文章。
 
-・[有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/onanie-a/chikubi006.html)
+・[有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/h-life/onanie-a/chikubi006.html)
 
-・[乳首淋浴！这对乳首自慰或开发有效吗？还是危险？](/onanie-a/chikubi009.html)
+・[乳首淋浴！这对乳首自慰或开发有效吗？还是危险？](/h-life/onanie-a/chikubi009.html)
 
 另外，结合这次介绍的方法，尝试专门用于责备乳首的
 

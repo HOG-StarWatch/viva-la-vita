@@ -12,7 +12,7 @@
 
 ……为了这样的你，这次我总结了在短时间内达到干性高潮的方法。（实践请自行承担风险）
 
-（本文以开发前列腺为中心。……在进行“前列腺自慰”时，如果想提高发生干性高潮的概率，请参考“**[前列腺按摩方法总结](/buttocks/page-59.html)**”）
+（本文以开发前列腺为中心。……在进行“前列腺自慰”时，如果想提高发生干性高潮的概率，请参考“**[前列腺按摩方法总结](/h-life/buttocks/page-59.html)**”）
 
 ## 关于前列腺开发 [​](#关于前列腺开发)
 
@@ -24,23 +24,23 @@
 
 * * *
 
-“肛门性感”……“**[棉棒自慰（棉棒肛门自慰）方法总结](/buttocks/page-63.html)**”、“**[关于使用肛珠进行自慰的方法总结](/buttocks/page-64.html)**”
+“肛门性感”……“**[棉棒自慰（棉棒肛门自慰）方法总结](/h-life/buttocks/page-63.html)**”、“**[关于使用肛珠进行自慰的方法总结](/h-life/buttocks/page-64.html)**”
 
-“**[前列腺按摩方法总结](/buttocks/page-59.html)**”等
+“**[前列腺按摩方法总结](/h-life/buttocks/page-59.html)**”等
 
-“会阴性感”……“**[前列腺按摩方法总结](/buttocks/page-59.html)**”、“**[开发会阴性感的方法总结](/dryorg/ein/page-12.html)**”、“**[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.html)**”等
+“会阴性感”……“**[前列腺按摩方法总结](/h-life/buttocks/page-59.html)**”、“**[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)**”、“**[矿泉水瓶+乳首自慰的手法](/h-life/nipple/chikuni/page-18.html)**”等
 
-“前列腺性感”……“**[前列腺按摩方法总结](/buttocks/page-59.html)**”、“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”等
+“前列腺性感”……“**[前列腺按摩方法总结](/h-life/buttocks/page-59.html)**”、“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”等
 
-“颅内性感”……“**[各种干性高潮](https://web.archive.org/web/20190820205626/http://adlib1.net/ws2/h-life/page-list-dry)**”、“**[乳首开发](https://web.archive.org/web/20190820205626/http://adlib1.net/ws2/h-life/page-list-nipple)**”、“**[催眠自慰的方法](/hypnosis/page-16.html)**”等
+“颅内性感”……“**[各种干性高潮](https://web.archive.org/web/20190820205626/http://adlib1.net/ws2/h-life/page-list-dry)**”、“**[乳首开发](https://web.archive.org/web/20190820205626/http://adlib1.net/ws2/h-life/page-list-nipple)**”、“**[催眠自慰的方法](/h-life/hypnosis/page-16.html)**”等
 
 * * *
 
-最重要的是“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”。
+最重要的是“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”。
 
 前列腺可以通过PC肌的收缩或肛门用品（灌肠器）来刺激，但由于肛门刺激需要较长的休息时间，因此后者有局限性。
 
-因此，通过PC肌的收缩间接刺激前列腺的“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”是一种非常方便的自慰方式。积极尝试吧！
+因此，通过PC肌的收缩间接刺激前列腺的“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”是一种非常方便的自慰方式。积极尝试吧！
 
 ……如果觉得某个位置的性感带较弱，那么应该优先进行该位置的自慰。
 
@@ -78,7 +78,7 @@
     
 +   定期进行肛门意识引导
     
-    参考“**[通过意识引导下腹部实现干性高潮的方法总结](/dryorg/yarikata/page-25.html)**”的文章，尝试进行肛门的意识引导。
+    参考“**[通过意识引导下腹部实现干性高潮的方法总结](/h-life/dryorg/yarikata/page-25.html)**”的文章，尝试进行肛门的意识引导。
     
 +   尝试催眠自慰
     
@@ -116,7 +116,7 @@
 
 ## 容易达到干性高潮的方法 [​](#容易达到干性高潮的方法)
 
-+   “**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.html)**”
++   “**[关于干性高潮的技巧和知识](/h-life/dryorg/intro/page-55.html)**”
     
     好好阅读这篇文章，并付诸实践！知道与不知道有很大的差别。
     
@@ -125,7 +125,7 @@
 
 总之，**有节奏地**收缩，用灌肠器刺激前列腺！……仅此而已。（但是，如果感到舒服，可以等待）
 
-更详细的内容，请参考“**[前列腺按摩方法总结](/buttocks/page-59.html)**”。
+更详细的内容，请参考“**[前列腺按摩方法总结](/h-life/buttocks/page-59.html)**”。
 
 ……我个人认为，如果还没有通过灌肠器达到干性高潮，那么不需要技巧等。
 
@@ -135,7 +135,7 @@
 
 如果平时就开发肛门性感，那么在不久的将来就能迎来干性高潮。
 
-（另外，如果受到湿性高潮（射精）的干扰，请参考“**[分离乳首性感和射精感的方法总结](/nipple/nayami/page-42.html)**”。这篇文章主要以乳首为中心，但也适用于肛门）
+（另外，如果受到湿性高潮（射精）的干扰，请参考“**[分离乳首性感和射精感的方法总结](/h-life/nipple/nayami/page-42.html)**”。这篇文章主要以乳首为中心，但也适用于肛门）
 
 以上。
 

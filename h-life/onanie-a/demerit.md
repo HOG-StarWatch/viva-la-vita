@@ -82,9 +82,9 @@
 
 确实，过度自慰可能会导致以下可怕的事情发生：
 
-[不可小觑！自慰的缺点总结](/onanie-a/ona-demerit.html)
+[不可小觑！自慰的缺点总结](/h-life/onanie-a/ona-demerit.html)
 
-[近在的问题！？ 自慰的风险、危险性、缺点总结](/onanie-a/risk.html)
+[近在的问题！？ 自慰的风险、危险性、缺点总结](/h-life/onanie-a/risk.html)
 
 ### 泌尿器官的损伤很可怕！ [​](#泌尿器官的损伤很可怕)
 
@@ -94,23 +94,23 @@
 
 关于这些信息，我总结在以下文章中：
 
-[阴囊湿疹和包皮炎的对策总结](/onanie-a/shisshin.html)
+[阴囊湿疹和包皮炎的对策总结](/h-life/onanie-a/shisshin.html)
 
-[亲身经历！包皮炎应对方法总结/特效药等](/onanie-a/sisshin-taisaku.html)
+[亲身经历！包皮炎应对方法总结/特效药等](/h-life/onanie-a/sisshin-taisaku.html)
 
-[精液混血！？血精液症的原因・对策总结](/onanie-a/broad01.html)
+[精液混血！？血精液症的原因・对策总结](/h-life/onanie-a/broad01.html)
 
-[精液带血“血精液症”的原因与解决方案验证](/onanie-a/broad02.html)
+[精液带血“血精液症”的原因与解决方案验证](/h-life/onanie-a/broad02.html)
 
 特别是，超过30岁后，泌尿器官附近会变得越来越敏感，因此需要更加注意。
 
-[30岁开始自慰的危险性与注意事项总结](/onanie-a/age30s.html)
+[30岁开始自慰的危险性与注意事项总结](/h-life/onanie-a/age30s.html)
 
 ## 几天一次，享受愉快的自慰 [​](#几天一次-享受愉快的自慰)
 
 果然，每天都获得手冲这种微妙的快感，没有任何意义。
 
-[通过手冲自慰来缓解压力是好事吗](/onanie-a/stress-onanie.html)中详细写道，“一周2次以下，享受愉快的自慰”比较妥当。
+[通过手冲自慰来缓解压力是好事吗](/h-life/onanie-a/stress-onanie.html)中详细写道，“一周2次以下，享受愉快的自慰”比较妥当。
 
 ### 什么是愉快的自慰 [​](#什么是愉快的自慰)
 
@@ -118,7 +118,7 @@
 
 首先，最简单的是这个↓
 
-・[如何进行令人愉悦的蓄积自慰（禁欲后的自慰）](/onanie-a/kaikan1.html)
+・[如何进行令人愉悦的蓄积自慰（禁欲后的自慰）](/h-life/onanie-a/kaikan1.html)
 
 这可以说是最简单、最容易实现的“愉快的自慰”。
 
@@ -132,13 +132,13 @@
 
 如果能达到高潮，就能像女性一样体验到持久的高潮，这样一来，就不需要手冲了。
 
-请阅读[男性体验干性高潮时的注意事项与缺点总结](/onanie-a/dry-orgasm003.html)后，务必阅读以下文章！
+请阅读[男性体验干性高潮时的注意事项与缺点总结](/h-life/onanie-a/dry-orgasm003.html)后，务必阅读以下文章！
 
-[男性达到干性高潮的方法・技巧总结](/onanie-a/dry-orgasm001.html)
+[男性达到干性高潮的方法・技巧总结](/h-life/onanie-a/dry-orgasm001.html)
 
-[成功实现男性干性高潮（雌性高潮）的方法、诀窍、技巧总结](/onanie-a/dry-orgasm002.html)
+[成功实现男性干性高潮（雌性高潮）的方法、诀窍、技巧总结](/h-life/onanie-a/dry-orgasm002.html)
 
-[成功通过乳首自慰（乳首自慰）达到干性高潮的方法总结](/onanie-a/chikubi017.html)
+[成功通过乳首自慰（乳首自慰）达到干性高潮的方法总结](/h-life/onanie-a/chikubi017.html)
 
 ### 果然还是飞机杯！ [​](#果然还是飞机杯)
 
@@ -156,11 +156,11 @@
 
 请看看以下总结文章。
 
-[如何进行令人愉悦的蓄积自慰（禁欲后的自慰）](/onanie-a/kaikan1.html)
+[如何进行令人愉悦的蓄积自慰（禁欲后的自慰）](/h-life/onanie-a/kaikan1.html)
 
-[12种轻松舒适的自慰方式介绍！](/onanie-a/easy12.html)
+[12种轻松舒适的自慰方式介绍！](/h-life/onanie-a/easy12.html)
 
-[12种超舒服的自慰方式介绍！【略高难度】](/onanie-a/onanie12.html)
+[12种超舒服的自慰方式介绍！【略高难度】](/h-life/onanie-a/onanie12.html)
 
 您也可以参考这样的专题报道～
 

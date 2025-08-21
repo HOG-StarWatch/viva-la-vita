@@ -78,7 +78,7 @@
 
 关于使用乳首泵自慰的信息，请看这篇文章的中间部分。
 
-+   [乳首自慰（乳首自慰）的方法总结](/onanie-a/chikubi003.html)
++   [乳首自慰（乳首自慰）的方法总结](/h-life/onanie-a/chikubi003.html)
 
 ### 对策 [​](#对策)
 
@@ -126,7 +126,7 @@
 
 如果这篇文章解开了你对乳首自慰的疑问，消除了你的不安，请务必参考下面的乳首自慰文章。
 
-+   [成功开发乳首的技巧总结](/onanie-a/chikubi000.html)
-+   [使用磁针贴能高概率成功开发乳首！？](/onanie-a/chikubi010.html)
-+   [让你感到愉悦的乳首自慰的5种常见物品](/onanie-a/chikubi005.html)
-+   [有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/onanie-a/chikubi006.html)
++   [成功开发乳首的技巧总结](/h-life/onanie-a/chikubi000.html)
++   [使用磁针贴能高概率成功开发乳首！？](/h-life/onanie-a/chikubi010.html)
++   [让你感到愉悦的乳首自慰的5种常见物品](/h-life/onanie-a/chikubi005.html)
++   [有效的乳首开发和乳首自慰（乳首自慰）音频作品总结](/h-life/onanie-a/chikubi006.html)

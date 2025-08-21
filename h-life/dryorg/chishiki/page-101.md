@@ -15,7 +15,7 @@
 
 ## 男性的乳首是什么？ [​](#男性的乳首是什么)
 
-在“ **[关于乳首（乳首与性感的说明）](/nipple/intro/page-90.html)** ”中进行了说明。
+在“ **[关于乳首（乳首与性感的说明）](/h-life/nipple/intro/page-90.html)** ”中进行了说明。
 
 ## 什么是男性乳首自慰？ [​](#什么是男性乳首自慰)
 
@@ -33,11 +33,11 @@
 
 ……有人可能会想，不射精也能高潮吗？但实际上，高潮的机制与射精高潮（湿性高潮）不同，所以通常没有问题。
 
-更详细的说明请参见“ **[关于干性高潮的说明](/dryorg/intro/page-24.html)** ”。
+更详细的说明请参见“ **[关于干性高潮的说明](/h-life/dryorg/intro/page-24.html)** ”。
 
 ## 会达到什么样的状态和感觉？ [​](#会达到什么样的状态和感觉)
 
-“ **[通过乳首自慰获得的愉悦快感的说明](/nipple/kaihatsu+iki/page-81.html)** ”
+“ **[通过乳首自慰获得的愉悦快感的说明](/h-life/nipple/kaihatsu+iki/page-81.html)** ”
 
 通过性开发的乳首进行自慰，大致会达到上述文章中的状态。
 
@@ -51,25 +51,25 @@
 
 为了通过乳首获得快感，需要进行“乳首开发”。
 
-“ **[关于乳首开发](/nipple/intro/page-9.html)** ”
+“ **[关于乳首开发](/h-life/nipple/intro/page-9.html)** ”
 
-“ **[关于乳首开发的风险](/nipple/kaihatsu+iki/page-10.html)** ”
+“ **[关于乳首开发的风险](/h-life/nipple/kaihatsu+iki/page-10.html)** ”
 
-“ **[【新手向】乳首开发入门讲座](/nipple/intro/page-41.html)** ”
+“ **[【新手向】乳首开发入门讲座](/h-life/nipple/intro/page-41.html)** ”
 
 首先学习乳首开发的知识，
 
-“ **[关于性感带的说明](/dryorg/seikantai/page-74.html)** ”
+“ **[关于性感带的说明](/h-life/dryorg/seikantai/page-74.html)** ”
 
-“ **[关于干性高潮的技巧和知识](/dryorg/intro/page-55.html)** ”
+“ **[关于干性高潮的技巧和知识](/h-life/dryorg/intro/page-55.html)** ”
 
 学习性感帯与干性高潮的关系，
 
-“ **[关于高效乳首开发方法（使用磁针贴进行性开发）](/nipple/kaihatsu+iki/page-2.html)** ”
+“ **[关于高效乳首开发方法（使用磁针贴进行性开发）](/h-life/nipple/kaihatsu+iki/page-2.html)** ”
 
-“ **[关于用手进行乳首开发的方法](/nipple/kaihatsu+iki/page-11.html)** ”
+“ **[关于用手进行乳首开发的方法](/h-life/nipple/kaihatsu+iki/page-11.html)** ”
 
-“ **[关于快速培养乳头性感的技巧](/nipple/kaihatsu+iki/page-43.html)** ”
+“ **[关于快速培养乳头性感的技巧](/h-life/nipple/kaihatsu+iki/page-43.html)** ”
 
 然后进行乳首的性开发。
 
@@ -77,29 +77,29 @@
 
 此外，
 
-“ **[关于乳首的敏感度等级](/nipple/kaihatsu+iki/page-1.html)** ”
+“ **[关于乳首的敏感度等级](/h-life/nipple/kaihatsu+iki/page-1.html)** ”
 
 如果将文章中记载的“乳首敏感度等级表”与当前状态进行比较，就可以知道性开发进行了多少，以及还需要开发多少才能达到乳首高潮。
 
 接下来，在乳首的性感得到一定程度的发展后，进行乳首自慰（乳首自慰），以达到干性高潮为目标。
 
-“ **[强化性感的方法总结](/nipple/jyouhou/page-19.html)** ”
+“ **[强化性感的方法总结](/h-life/nipple/jyouhou/page-19.html)** ”
 
 通过强化性感的方法，提高身体的快感（提高敏感度非常重要）……，
 
-“ **[舒服的乳首自慰方法总结](/nipple/chikuni/page-5.html)** ”
+“ **[舒服的乳首自慰方法总结](/h-life/nipple/chikuni/page-5.html)** ”
 
-“ **[让乳首和乳晕感到愉悦的爱抚方法总结](/nipple/chikuni/page-84.html)** ”
+“ **[让乳首和乳晕感到愉悦的爱抚方法总结](/h-life/nipple/chikuni/page-84.html)** ”
 
-“ **[乳首自慰方法总结](/dryorg/yarikata/page-26.html)** ”
+“ **[乳首自慰方法总结](/h-life/dryorg/yarikata/page-26.html)** ”
 
-“ **[在乳首开发中戴着磁针贴进行乳首自慰的方法](/nipple/chikuni/page-29.html)** ”
+“ **[在乳首开发中戴着磁针贴进行乳首自慰的方法](/h-life/nipple/chikuni/page-29.html)** ”
 
 请尝试实践上述说明中的乳首自慰。
 
-此外，当乳首的性感消失时，通过“ **[B点（斯宾塞腋窝尾部）的开发和爱抚方法总结](/nipple/chibusa/page-95.html)** ”来强化胸部的快感，可能会促进乳首性感的发展。
+此外，当乳首的性感消失时，通过“ **[B点（斯宾塞腋窝尾部）的开发和爱抚方法总结](/h-life/nipple/chibusa/page-95.html)** ”来强化胸部的快感，可能会促进乳首性感的发展。
 
-……此外，在乳首自慰过程中，通过“ **[通过乳首自慰达到高潮的基准](/nipple/kaihatsu+iki/page-38.html)** ”来确认获得了多少快感，可以判断还需要进行多少性开发才能达到乳首高潮。
+……此外，在乳首自慰过程中，通过“ **[通过乳首自慰达到高潮的基准](/h-life/nipple/kaihatsu+iki/page-38.html)** ”来确认获得了多少快感，可以判断还需要进行多少性开发才能达到乳首高潮。
 
 ## 关于加深乳首自慰带来的干性高潮快感的方法 [​](#关于加深乳首自慰带来的干性高潮快感的方法)
 
@@ -111,15 +111,15 @@
 
 关键点在于“**会阴性感**”。除了乳首之外，还要开发这个部位的性感……同时刺激乳首和会阴……就能获得无法形容的强烈快感。
 
-“ **[开发会阴性感的方法总结](/dryorg/ein/page-12.html)** ”
+“ **[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)** ”
 
-“ **[能量高潮的技巧](/dryorg/yarikata/page-15.html)** ”
+“ **[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)** ”
 
 通过这两个方法，开发“会阴”和“其深处（前列腺性感周边）”，
 
-“ **[理想的乳首自慰流程](/nipple/chikuni/page-14.html)** ”
+“ **[理想的乳首自慰流程](/h-life/nipple/chikuni/page-14.html)** ”
 
-“ **[矿泉水瓶+乳首自慰的手法](/nipple/chikuni/page-18.html)** ”
+“ **[矿泉水瓶+乳首自慰的手法](/h-life/nipple/chikuni/page-18.html)** ”
 
 选择其中一种方法，就可以达到充满幸福的极乐境界。
 
@@ -131,7 +131,7 @@
 
 简而言之，干性高潮失败了。……如果乳首自慰导致射精，那么无论多久都无法达到真正的快感，因此想要体验干性高潮的人，请注意纠正。
 
-“ **[分离乳首性感和射精感的方法总结](/nipple/nayami/page-42.html)** ”
+“ **[分离乳首性感和射精感的方法总结](/h-life/nipple/nayami/page-42.html)** ”
 
 可以通过这篇文章进行应对。
 
@@ -139,7 +139,7 @@
 
 虽然能感到愉悦，但总觉得还差一步……，对于这些人，
 
-“ **[给乳首高潮难以达到者的建议](/nipple/nayami/page-39.html)** ”
+“ **[给乳首高潮难以达到者的建议](/h-life/nipple/nayami/page-39.html)** ”
 
 请参考这篇文章。
 
@@ -151,13 +151,13 @@
 
 除了通常的玩弄方法外，还有以下刺激方法。
 
-“ **[用跳蛋进行愉悦的乳首自慰的方法总结](/nipple/chikuni/page-96.html)** ”
+“ **[用跳蛋进行愉悦的乳首自慰的方法总结](/h-life/nipple/chikuni/page-96.html)** ”
 
-“ **[对乳房进行电击（通电垫责罚）的方法总结](/nipple/chibusa/page-100.html)** ”
+“ **[对乳房进行电击（通电垫责罚）的方法总结](/h-life/nipple/chibusa/page-100.html)** ”
 
-“ **[媚药刺激自慰，沉浸在愉悦快感中的方法总结](/dryorg/yarikata/page-99.html)** ”
+“ **[媚药刺激自慰，沉浸在愉悦快感中的方法总结](/h-life/dryorg/yarikata/page-99.html)** ”
 
-“ **[使用润滑液进行乳首自慰的玩法](/nipple/chikuni/page-32.html)** ”
+“ **[使用润滑液进行乳首自慰的玩法](/h-life/nipple/chikuni/page-32.html)** ”
 
 如果觉得普通的乳首自慰变得单调，请尝试一下。
 
@@ -165,31 +165,31 @@
 
 混合以下自慰方式，可能会更加愉悦。
 
-“ **[催眠自慰的方法](/dryorg/yarikata/page-16.html)** ”
+“ **[催眠自慰的方法](/h-life/dryorg/yarikata/page-16.html)** ”
 
-“ **[尾骨性感开发方法总结](/dryorg/yarikata/page-13.html)** ”
+“ **[尾骨性感开发方法总结](/h-life/dryorg/yarikata/page-13.html)** ”
 
 “ **[龟头自慰的方法总结](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-36)** ”
 
-“ **[意淫自慰方法总结](/dryorg/yarikata/page-28.html)** ”
+“ **[意淫自慰方法总结](/h-life/dryorg/yarikata/page-28.html)** ”
 
-“ **[女装自慰兴奋方法总结](/dryorg/hoka/page-88.html)** ”
+“ **[女装自慰兴奋方法总结](/h-life/dryorg/hoka/page-88.html)** ”
 
-“ **[快乐通电自慰方法总结](/dryorg/yarikata/page-17.html)** ”
+“ **[快乐通电自慰方法总结](/h-life/dryorg/yarikata/page-17.html)** ”
 
 “ **[内裤自慰的方法](https://web.archive.org/web/20190917235729/http://adlib1.net/ws2/h-life/page-33)** ”
 
-“ **[棉棒自慰（棉棒肛门自慰）方法总结](/buttocks/page-63.html)** ”
+“ **[棉棒自慰（棉棒肛门自慰）方法总结](/h-life/buttocks/page-63.html)** ”
 
-“ **[前列腺按摩方法总结](/buttocks/page-59.html)** ”
+“ **[前列腺按摩方法总结](/h-life/buttocks/page-59.html)** ”
 
 同时刺激乳首和其他部位，身体对快感的感觉会发生变化。
 
 ## 闲谈（小知识、杂学、冷知识等） [​](#闲谈-小知识、杂学、冷知识等)
 
-“ **[乳首开发的冷知识和小贴士](/nipple/kaihatsu+iki/page-44.html)** ”
+“ **[乳首开发的冷知识和小贴士](/h-life/nipple/kaihatsu+iki/page-44.html)** ”
 
-“ **[关于乳首开发的Q&A～！](/nipple/kaihatsu+iki/page-40.html)** ”
+“ **[关于乳首开发的Q&A～！](/h-life/nipple/kaihatsu+iki/page-40.html)** ”
 
 浏览以上两篇文章，可以更深入地了解乳首的知识。
 

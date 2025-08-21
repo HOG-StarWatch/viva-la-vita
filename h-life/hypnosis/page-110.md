@@ -16,7 +16,7 @@
 
 颅内高潮是指通过某种方法刺激“大脑的快感神经”，从而引起干性高潮的现象。
 
-也就是大脑达到高潮的意思。（关于干性高潮的说明，请参见“**[关于干性高潮的说明](/dryorg/intro/page-24.html)**”）
+也就是大脑达到高潮的意思。（关于干性高潮的说明，请参见“**[关于干性高潮的说明](/h-life/dryorg/intro/page-24.html)**”）
 
 在催眠音声中，通常是让听众进入恍惚状态后，通过追加暗示，有意识地激活“大脑的快感神经”，从而引导产生快感。
 
@@ -116,7 +116,7 @@
 
 ## 如何通过催眠自慰引起颅内高潮 [​](#如何通过催眠自慰引起颅内高潮)
 
-阅读“**[提高催眠音声暗示感受性的方法总结](/hypnosis/page-107.html)**”和“**[给无法成功进行色情催眠的人的建议](/hypnosis/page-102.html)**”……，
+阅读“**[提高催眠音声暗示感受性的方法总结](/h-life/hypnosis/page-107.html)**”和“**[给无法成功进行色情催眠的人的建议](/h-life/hypnosis/page-102.html)**”……，
 
 在提高被暗示性的同时，积极收听干性高潮类（颅内高潮类）的催眠音声，应该可以在几个月内达到高潮。（存在个体差异）
 
@@ -130,15 +130,15 @@
 
 这需要进行**准确的性感带开发**。
 
-在“**[关于干性高潮的技巧和知识](/dryorg/intro/page-55.html)**”中学习干性高潮的知识后，
+在“**[关于干性高潮的技巧和知识](/h-life/dryorg/intro/page-55.html)**”中学习干性高潮的知识后，
 
 建议从
 
 “**[乳首开发方法总结](https://web.archive.org/web/20190909080246/http://adlib1.net/ws2/h-life/page-list-nipple)**”
 
-“**[开发会阴性感的方法总结](/dryorg/ein/page-12.html)**”
+“**[开发会阴性感的方法总结](/h-life/dryorg/ein/page-12.html)**”
 
-“**[能量高潮的技巧](/dryorg/yarikata/page-15.html)**”
+“**[能量高潮的技巧](/h-life/dryorg/yarikata/page-15.html)**”
 
 “**[前列腺开发方法总结](https://web.archive.org/web/20190909080246/http://adlib1.net/ws2/h-life/page-list-buttocks)**”
 
@@ -166,7 +166,7 @@
 
 例如，触摸皮肤的性感带时，大脑的快感会单方面积累，从而引起颅内高潮。
 
-（如果不知道性感带的位置，请参考“**[关于性感带的说明](/dryorg/seikantai/page-74.html)**”）
+（如果不知道性感带的位置，请参考“**[关于性感带的说明](/h-life/dryorg/seikantai/page-74.html)**”）
 
 与此相对，如果进行“**[龟头责め](https://web.archive.org/web/20190909080246/http://adlib1.net/ws2/h-life/page-36)**”，则几乎肯定会引起身体高潮。
 

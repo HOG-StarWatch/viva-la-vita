@@ -2,13 +2,13 @@
 
 首先，关于乳首开发和乳首自慰的概要，请参考以下文章。
 
-[成功开发乳首的技巧总结](/onanie-a/chikubi000.html)
+[成功开发乳首的技巧总结](/h-life/onanie-a/chikubi000.html)
 
-[男人乳首开发，乳首自慰(乳首自慰)的9个「超」有效方法！](/onanie-a/chikubi013.html)
+[男人乳首开发，乳首自慰(乳首自慰)的9个「超」有效方法！](/h-life/onanie-a/chikubi013.html)
 
-[乳首开发有效想象方法总结](/onanie-a/chikubi011.html)
+[乳首开发有效想象方法总结](/h-life/onanie-a/chikubi011.html)
 
-[管理人是如何成功开发乳首，获得极致乳首自慰体验的](/onanie-a/chikubi015.html)
+[管理人是如何成功开发乳首，获得极致乳首自慰体验的](/h-life/onanie-a/chikubi015.html)
 
 在之前的文章中，我们已经讨论了如何有效地进行乳首开发，以及如何通过乳首自慰（乳首自慰）更容易达到干性高潮。
 
@@ -42,7 +42,7 @@
 
 那么...
 
-・[催眠自慰的方法总结](/onanie-a/saimin001.html)
+・[催眠自慰的方法总结](/h-life/onanie-a/saimin001.html)
 
 正如这篇文章中所写，催眠音频可以说并不是适合所有人的类型。
 
