@@ -6,6 +6,7 @@ export default [
         { text: '主页', link: 'https://viva-la-vita.org/', target: '_self', },
         { text: '论坛', link: 'https://bbs.viva-la-vita.org/', target: '_self', },
         { text: 'Github', link: 'https://github.com/viva-la-vita', target: '_self', },
+        { text: '论坛文章随手存', link: 'bbs/index.md', target: '_self', },
       ],
     },
 
